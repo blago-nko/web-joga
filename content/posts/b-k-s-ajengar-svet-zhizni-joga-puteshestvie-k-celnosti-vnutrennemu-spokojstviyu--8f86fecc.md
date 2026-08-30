@@ -1,0 +1,360 @@
+---
+title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Расслабление: каждая поза должна дышать покоем"
+date: 2019-11-16
+description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Расслабление: каждая поза должна дышать покоем  Если вы все делаете вер..."
+aliases:
+  - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-rasslablenie-kazhdaya-poza-dolzhna-dyshat-pokoem.html"
+url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-rasslablenie-kazhdaya-poza-dolzhna-dyshat-pokoem/"
+---
+
+[![Айенгар ](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpj2ZEg1IMLk3EdQtny2HXXnW89cZ8DthNLyEXCbb1W7cqFkComdicvyuDm5TukcWwwk3xOpwFRKdFep8FJfo3ZopRj47qqe2RX7F1mMTkaBtF9_7_6luzRzqVVEBYYrrjOvUbHVD-48g/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258055.jpg "Айенгар ")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpj2ZEg1IMLk3EdQtny2HXXnW89cZ8DthNLyEXCbb1W7cqFkComdicvyuDm5TukcWwwk3xOpwFRKdFep8FJfo3ZopRj47qqe2RX7F1mMTkaBtF9_7_6luzRzqVVEBYYrrjOvUbHVD-48g/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258055.jpg)
+
+  
+
+[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dinamichnoe-rastyazhenie-iz-centra-vashej-sushchnosti.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-legkost-dumajte-i-chuvstvujte-sebya-legche.html)
+
+## Расслабление: каждая поза должна дышать покоем
+
+Если вы все делаете верно, вы должны чувствовать себя расслабленно, даже если при этом натянуты, как струна. Эго – неумолимый диктатор, требующий от тела все больше и больше. Оно не знает, что нужно уметь приводить в баланс активность и пассивность, усилие и расслабление в асане. Если после натяжения наступает расслабление, разум и тело не колеблются. Баланс активности и пассивности превращает обычно активный мозг в стороннего наблюдателя. Это влечет за собой пассивность ума и активность каждой клеточки тела без напряжения мышц. Если усилие преобладает, вся тяжесть падает на мышцы, они устают от растяжения, и это часто приводит к травмам. Силой добиться равновесия ума невозможно.  
+  
+Расслабление означает освобождение от излишнего мышечного напряжения, что, в свою очередь, позволяет телу быть крепким, а уму – умиротворенным. Но разве можно испытать спокойствие, одновременно борясь с телом? Разве можно испытать безмятежность и ясность, когда тело болит и ноет, приспосабливаясь к асане? Чуть позже мы вернемся к вопросу о боли и рассмотрим, как можно встретить ее с невозмутимостью, твердостью и спокойствием. Пока же остановимся на некоторых секретах достижения расслабления в асане, чтобы тело стало легким и вы избежали ригидности и жесткости.  
+  
+Входите в позу на выдохе, пока не почувствуете состояние внутреннего безмолвия в клетках и внутри себя. Вдох – всегда напряжение, выдох – свобода. Все движения делайте на выдохе, он сглаживает напряжение и давление в теле.  
+  
+Если, находясь в определенной позе, вы захотите потянуться еще, делайте это только на выдохе. Подобное изменение асаны работает над внутренним органическим телом, в то время как движение, сделанное на вдохе, затрагивает тело внешнее. Хотя окончательный вариант асаны оценить объективно можно только со стороны, она поддерживается изнутри. Достигнув желаемого результата, нужно еще научиться высвобождать напряжение из мышц, распределяя их между связками и суставами, которые будут поддерживать тело в неподвижном состоянии.  
+  
+Сфокусируйтесь на расслаблении, когда максимальное натяжение уже достигнуто, не на сжатии и удержании, а на отдыхе и раскрытии. Это прекрасно успокаивает и тело, и мозг. Непременно расслабьте шею и голову. Если задняя поверхность шеи расслаблена, а язык мягкий, мозг не будет напрягаться. Вот это и есть расслабление в действии, безмолвие в активности. Как только вы научитесь расслаблять язык и гортань, вы сможете расслабить и мозг, потому что это процесс взаимозависимый. В традиции йоги горло – место вишудха чакры , очистительного механизма. Но если оно напряжено, оно скорее загрязнит вас, чем очистит. Скованность влечет за собой интоксикацию, а далее еще большую загрязненность. Обращайте свой взор на сущность, а не на эго. Если вы замечаете, что делаете пранаяму или асану с напряженным горлом, это означает, что всем руководит ваш эгоистичный мозг, а не тело. Сжатые зубы говорят о скованности мыслей. Все это можно наблюдать не только во время практики, но и во время вашего обычного рабочего дня.  
+  
+Когда вы находитесь в позе, следите также за своими глазами. Напряжение в них весьма неблагоприятно сказывается на работе мозга. Если глаза неподвижны и спокойны, мозг умиротворен и пассивен. Он способен воспринимать что-то новое только в полном расслаблении. Когда же он напряжен и возбужден, в нем селится хаос, и ни о какой восприимчивости не может идти и речи. Глаза расположены близко от мозга, и потому их поведение отражает его состояние. Стоит вам смутиться, и брови уже хмурятся, в глазах мелькает беспокойство, и они сужаются. Это давление на глаза увеличивает стресс, так как мозг тоже сжимается. Когда же глаза широко распахнуты, мозг готов воспринимать информацию. Если же глаза напряжены, значит, вместо тела асану выполняет мозг. Напряжение в глазах говорит о вашем стрессе. Значит, ваши нервы уже утомлены и, напрягаясь зря, вы только теряете энергию. В практике асан мы пытаемся генерировать и стабилизировать свою энергию, сохраняя ее, а не расходуя попусту. Расслабьте свои глаза, когда вы куда-то смотрите, иначе вы зря расходуете энергию.  
+  
+Позвольте глазам ввалиться, держите их открытыми и расслабленными и смотрите назад. Этот взгляд научит вас смотреть внутрь и наблюдать за своим телом и мозгом. Позвольте глазам расцвести, как цветам. Чувствовать – значит смотреть, смотреть – значит чувствовать. Вы должны чувствовать все с широко открытыми глазами. Если же взгляд обращен вовне, достижение цельности невозможно.  
+  
+Когда взгляд направлен вперед с угла виска в обычном поле зрения, тогда фронтальная часть мозга занимается анализом (витарка ). Но когда мы распространяем свою визуальную осознанность с заднего угла виска, возле уха, мы автоматически активизируем заднюю часть мозга, которая отвечает за синтез (вичара ). Передняя часть мозга уступает сцену задней, целостной и теперь уже активной части. Если это не укладывается у вас в голове, представьте лучше, как вы входите в огромный средневековый собор. Ваш взгляд, кажется, направлен только на то, что у вас впереди, на алтарь, например, но ваша осознанность непроизвольно распространяется на огромное пространство вокруг, на бесконечное великолепие и звенящую тишину древних стен. Это целостное медитативное видение.  
+  
+Если в асане вся работа перекладывается на переднюю часть мозга, это блокирует рефлекторное действие заднего мозга. Форма каждой асаны должна отражаться в теле мудрости (виджнянамайя коша ) для правильного приспособления и выстраивания позы. Если асана делается чисто механически из передней части мозга, ее воздействие будет ощутимо только лишь по периферии тела, и внутри вы не почувствуете никакого движения и озаряющего света. Если же вы делаете это при участии задней части мозга, вы удивитесь своей чувствительности и на каждое действие увидите соответствующую реакцию. Тогда жизнь не просто динамична, она буквально наэлектризована жизненной силой.  
+  
+Свет и жизнь от нашего видения должны сиять везде. И в конце откроется глаз души, часто называемый «третьим глазом», который находится меж бровей, в точке чуть выше. Если он спокоен (неподвижен), спокойна и душа, наблюдая за всем происходящим, словно немой свидетель, ни во что не вовлекаясь. Кожа бровей при этом тоже обязательно расслаблена.  
+  
+Расслабление начинается с верхнего слоя нашего тела и затем проникает в глубочайшие слои существа. Внимательное, даже скрупулезное отношение к телу помогает постичь искусство расслабления. А тот, кто познал искусство расслабления, придет и к пониманию медитации. На Востоке или Западе, Севере или Юге – везде люди страдают от стресса и жаждут расслабления и отдохновения. Научившись растягиваться, вы приходите к расслаблению. Посмотрите на кошку – королеву гибкости и мастерицу расслабления. Рассмотрим, наконец, еще одно немаловажное качество, описанное Патанджали, – «усилие не в тягость», то есть легкость.  
+
+[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dinamichnoe-rastyazhenie-iz-centra-vashej-sushchnosti.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-legkost-dumajte-i-chuvstvujte-sebya-legche.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+Ярлыки:
+[Айенгар](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
+[Книги](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
+
+
+
+### Комментарии
+
+#### Отправить комментарий
+
+
+
+
+### Популярное
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwQNZJppOylPA9u8W-w8vAeKRHQ1n9FH_lAtccMZsFDQt1d7yQR-5H4J2GIQnw-_IKpspQ4wC2-E8vZou9cfCGm41QI1igTeeaBRhLdTrNBOByMfu2PkH03B5TbU0OtzApIoG7VEooJTA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258040.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html "permanent link")
+
+### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjv4zW8Ennw6MlQ11GO0KRcYoOEFmM8UKpfROjjhi4l7YgwI-xC6_QjtnjeqyexnyARZOglkN3x35Ak9PpbT5K6hccfMooYrgSlbHVIXVeY-rNdtYRWnLbun-WFmt1EGpFjUVSK2ddrMCk/w470-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580131.jpg)](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[мая 31, 2020](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
+
+### [Глава 23. Бхастрика и Капалабхати Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDj6DCPxiPRTR7ryDtiYP4K4eIER-L49eLBIQHwWtYLtCVWPLbY_6fQbbPDtAnPUP1RkogPtUrlFnUoi4pXGfELgCX2s_l7fAfg-IV3mz7VCpQfFNcP9NG4yPM_DZwIskxnnn609e9UkA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580103.jpg)](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[декабря 15, 2019](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html "permanent link")
+
+### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Яма: жизнь в истинной этике](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeih2TgsZwFwTZlwl5qQ2s9eSd_PGX2gVa08Crd86RVBX7TtZTK4LURUx903SIZKsBZkoE8oSPllnSK0hXdiDUZ3kZWfBO8_eIZqlIXI7JxRg03W3md7hGre_wtnTQADns9VAT7fVo1W8/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258042.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html "permanent link")
+
+### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Предисловие](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEics-yGyF1DgefmaFzIDk5sU1EFMQkc80CUL4o0Xwp1R3jNcUFbwQgm39YfGBn5QntT1pt4tMhjKzHmvoqWP84iYawdRTWybTlDyXCYWxeBKfktP2x35MyhQidK62PQSVl7fqLfZKXNK_o/w640-h480/%25D0%25BF%25D1%2580%25D0%25B8%25D0%25B5%25D0%25BC.jpg)](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[июня 26, 2021](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html "permanent link")
+
+### [Практика управления энергией](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJB581G6jtNG9NVYFbJhUhTS7hqvpIVOw9573vmlwZruHTcdH1AqjepBtJbC3VKPqaeBEfrywelVgssoXCyo5f-O9cqReRmUJA5kmPzILLLwRYbZyiCLITadzHK_fW8C_9nzCTBa7AL7I/w520-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580100.jpg)](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[июня 30, 2020](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
+
+### [Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg)](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[апреля 12, 2020](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html "permanent link")
+
+### [Глава 18. Вритти Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-AK9Kma-1OZuppty8bf9BEFTHogzNQWgcg3T0RvzlLOWcdAWP5voLqtqVL7QSMVuXB_TV6KFfTAiRHrsoIc_7gnLEpJ-1zCUQXcVXmGm2Qde3vOJxrt0Nw81u-VegkqKfUzz1jD3E9Nk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258035.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[октября 28, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html "permanent link")
+
+### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/w640-h360/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[октября 21, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html "permanent link")
+
+### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html#comments)
+
+[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf3iVPaTmQFxmU90EoWD2NA0cnYFx86rnYT772qNCeWkSJ0WW9ZwIxCiFNmyjcfgpyBYUoX3aJTZTmv7xJ9G1rcnRiRe1bhawAAmuOMUC_B-cpDtI2ai7OAG5J-zH0jXyObpEq-XVFlY0/s1600/%25D0%259D%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F+%25D0%25B9%25D0%25BE%25D0%25B3%25D0%25B0.jpg)](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
+
+Автор:
+
+
+[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
+
+
+[ноября 07, 2019](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html "permanent link")
+
+### [Авторы книг и статей по йоге](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
+
+Поделиться
+
+* Получить ссылку
+* Facebook
+* X
+* Pinterest
+* Электронная почта
+* Другие приложения
+
+[Отправить комментарий](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html#comments)
+
+
+
+
+Мы в: [Google](https://groups.google.com/forum/#!forum/novaya-joga), [Facebook](https://www.facebook.com/groups/novjoga), [ВКонтакте](https://vk.com/novjoga), [Одноклассники](https://ok.ru/group/61505827700782), [ЯМессенджер](https://yandex.ru/chat/#/join/d80360cc-d14d-472c-9a20-76de83e80978)
+
+[Политика конфиденциальности](http://partnerstvo.blagorussia.ru/politika-konfidencialnosti)
+
+![](https://mc.yandex.ru/watch/55844950)
+
+
+
+
+
+![Top.Mail.Ru](https://top-fwz1.mail.ru/counter?id=3147670;js=na)
+
+[Технологии Blogger](https://www.blogger.com)
+
+Автор изображений для темы: [ImagesbyTrista](http://partnerstvo.blagorussia.ru)
+
+@ 2019 - 2025 года
+
+
+
+
+
+### Перевести - Translate
+
+### Разделы
+
+* [Айенгар144](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
+* [Асаны1](https://joga.blagorussia.ru/search/label/%D0%90%D1%81%D0%B0%D0%BD%D1%8B)
+* [Книги150](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
+* [Словарь2](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BB%D0%BE%D0%B2%D0%B0%D1%80%D1%8C)
+* [Списки5](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BF%D0%B8%D1%81%D0%BA%D0%B8)
+* [Шри Ауробиндо6](https://joga.blagorussia.ru/search/label/%D0%A8%D1%80%D0%B8%20%D0%90%D1%83%D1%80%D0%BE%D0%B1%D0%B8%D0%BD%D0%B4%D0%BE)
+* [Энергия1](https://joga.blagorussia.ru/search/label/%D0%AD%D0%BD%D0%B5%D1%80%D0%B3%D0%B8%D1%8F)
+
+* [Группа Google](https://groups.google.com/g/novaya-joga)
+
+### Одноклассники
+
+### ВКонтакте
+
+### Нас прочитали
+
+## Подписаны
+
+### Последнее
+
+[Загрузка...](https://joga.blagorussia.ru/feeds/posts/default)
+
+### [Сообщить о нарушении](https://www.blogger.com/go/report-abuse)
+
+### Архив
+
+* [июня 20211](https://joga.blagorussia.ru/2021/06/)
+* [июня 20209](https://joga.blagorussia.ru/2020/06/)
+* [мая 20205](https://joga.blagorussia.ru/2020/05/)
+* [апреля 20202](https://joga.blagorussia.ru/2020/04/)
+* [марта 20207](https://joga.blagorussia.ru/2020/03/)
+* [февраля 20206](https://joga.blagorussia.ru/2020/02/)
+* [января 20205](https://joga.blagorussia.ru/2020/01/)
+* [декабря 201936](https://joga.blagorussia.ru/2019/12/)
+* [ноября 201943](https://joga.blagorussia.ru/2019/11/)
+* [октября 201938](https://joga.blagorussia.ru/2019/10/)
