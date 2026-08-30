@@ -1,0 +1,5 @@
+baseURL = "https://blago-nko.github.io/web-joga/"
+title = "Йога"
+languageCode = "ru-ru"
+[params]
+description = "Новая йога: практика и философия"
