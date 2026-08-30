@@ -1,5 +1,12 @@
 baseURL = "https://joga.blagorussia.ru/"
-title = "Йога"
 languageCode = "ru-ru"
+title = "Новая йога"
+
 [params]
-description = "Новая йога: практика и философия"
+  description = "Новая йога"
+  author = "НП «Общественное благополучие Воронежа»"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
