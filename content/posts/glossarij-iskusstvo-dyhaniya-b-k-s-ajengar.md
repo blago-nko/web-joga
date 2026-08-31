@@ -6,11 +6,8 @@ aliases:
 url: "/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/06/prilozhenie-kursy-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJB581G6jtNG9NVYFbJhUhTS7hqvpIVOw9573vmlwZruHTcdH1AqjepBtJbC3VKPqaeBEfrywelVgssoXCyo5f-O9cqReRmUJA5kmPzILLLwRYbZyiCLITadzHK_fW8C_9nzCTBa7AL7I/w520-h640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580100.jpg "Б. К. С. АЙЕНГАР")
-
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJB581G6jtNG9NVYFbJhUhTS7hqvpIVOw9573vmlwZruHTcdH1AqjepBtJbC3VKPqaeBEfrywelVgssoXCyo5f-O9cqReRmUJA5kmPzILLLwRYbZyiCLITadzHK_fW8C_9nzCTBa7AL7I/w520-h640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580100.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 ## Глоссарий
-
 **А** — отрицательная частица, означающая «не», как в слове «ненасилие».
 **Абхайя **(abhaya) — свобода от страха.
 **Абхинивеша **(abhinivesa) — любовь к жизни и страх быть отсеченным от всего сущего смертью.
