@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Семейная жизнь"
 date: 2019-10-23
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Иногда люди спрашивают меня, можно ли заниматься йогой и при этом вести н..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html"
 url: "/derevo-jogi-joga-vriksha-semejnaya-zhizn/"

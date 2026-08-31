@@ -1,7 +1,6 @@
 ---
 title: "Глава 21. Бхрамари, Мурчха и Плавини Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-05-02
-description: "Предыдущая  >>> Оглавление  <<< Следующая Бхраллари Пранаяма Бхрамари (Bhramara) означает большой черный шмель, и эта Пран..."
 aliases:
   - "/2020/05/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar.html"
 url: "/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar/"

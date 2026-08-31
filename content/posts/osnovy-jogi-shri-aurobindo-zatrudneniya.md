@@ -1,7 +1,6 @@
 ---
 title: "ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ЗАТРУДНЕНИЯ"
 date: 2019-11-03
-description: "Предыдущая страница  >>> Оглавление  >>> Следующая страница   III ЗАТРУДНЕНИЯ  На начальных этапах, когда существо ещ..."
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html"
 url: "/osnovy-jogi-shri-aurobindo-zatrudneniya/"

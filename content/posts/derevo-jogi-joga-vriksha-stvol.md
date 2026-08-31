@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Ствол"
 date: 2019-10-26
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Ствол дерева соответствует принципам ниямы. Какова роль ниямы в выполнени..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-stvol.html"
 url: "/derevo-jogi-joga-vriksha-stvol/"

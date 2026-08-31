@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Введение: на пороге Освобождения"
 date: 2019-11-16
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Введение: на пороге Освобождения  Полвека назад, когда я покинул Индию и ..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-vvedenie-na-poroge-osvobozhdeniya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-vvedenie-na-poroge-osvobozhdeniya/"

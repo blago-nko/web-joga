@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Ветви"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Асаны - это ветви дерева. В чем суть правильного отношения и подхода к вы..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-vetvi.html"
 url: "/derevo-jogi-joga-vriksha-vetvi/"

@@ -1,7 +1,6 @@
 ---
 title: "Глава 17. Биджа - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-04-08
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 17. Биджа Пранаяма Что такое Джапа? 1. Хотя душа и свободна от причины и с..."
 aliases:
   - "/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html"
 url: "/glava-17-bidzha-pranayama-b-k-s-ajengar/"

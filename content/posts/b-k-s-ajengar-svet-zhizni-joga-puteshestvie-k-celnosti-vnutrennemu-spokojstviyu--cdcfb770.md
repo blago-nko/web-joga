@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Пратьяхара"
 date: 2019-11-22
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Пратьяхара  Чуть ранее мы разбирали пранаяму, четвертый лепесток йоги. Мы..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pratyahara.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pratyahara/"

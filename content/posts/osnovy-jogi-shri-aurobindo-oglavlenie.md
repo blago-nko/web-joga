@@ -1,7 +1,6 @@
 ---
 title: "ОСНОВЫ ЙОГИ - Шри Ауробиндо (Оглавление)"
 date: 2019-11-03
-description: "Оглавление  I СПОКОЙСТВИЕ – ПОКОЙ – БЕСПРИСТРАСТНОСТЬ     II ВЕРА – УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ       III ЗАТРУДНЕНИЯ       IV ЖЕЛАНИЕ –..."
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html"
 url: "/osnovy-jogi-shri-aurobindo-oglavlenie/"

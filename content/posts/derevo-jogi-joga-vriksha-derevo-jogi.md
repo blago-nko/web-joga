@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Дерево йоги"
 date: 2019-10-22
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Когда вы выращиваете дерево, вы сначала выкапываете яму, выбираете из нее..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-derevo-jogi.html"
 url: "/derevo-jogi-joga-vriksha-derevo-jogi/"

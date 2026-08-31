@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Совесть"
 date: 2019-12-14
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Совесть   Интеллект в высшей степени наблюдателен, вернее, он наблюдает с..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sovest.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sovest/"

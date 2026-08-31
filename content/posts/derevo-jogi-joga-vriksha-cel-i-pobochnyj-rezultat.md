@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цель и побочный результат"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Прежде всего, йога не является терапевтической наукой. Йога - это наука, ..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-cel-i-pobochnyj-rezultat.html"
 url: "/derevo-jogi-joga-vriksha-cel-i-pobochnyj-rezultat/"

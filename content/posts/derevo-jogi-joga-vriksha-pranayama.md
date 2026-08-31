@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Пранаяма"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Прана означает "энергия". Космическая энергия, индивидуальная э..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-pranayama.html"
 url: "/derevo-jogi-joga-vriksha-pranayama/"

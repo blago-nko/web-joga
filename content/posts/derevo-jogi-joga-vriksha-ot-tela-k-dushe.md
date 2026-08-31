@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - От тела к душе"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Кульминация йоги - это освобождение от оков тела. Многие люди считают, чт..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-ot-tela-k-dushe.html"
 url: "/derevo-jogi-joga-vriksha-ot-tela-k-dushe/"

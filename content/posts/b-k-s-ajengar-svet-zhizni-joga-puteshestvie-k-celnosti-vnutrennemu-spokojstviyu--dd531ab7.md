@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Малое, или ложное я"
 date: 2019-11-29
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Малое, или ложное «я»  Малое «я» – это индивидуальная осознанность и само..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-maloe-ili-lozhnoe-ya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-maloe-ili-lozhnoe-ya/"

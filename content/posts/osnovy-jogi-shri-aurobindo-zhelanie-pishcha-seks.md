@@ -1,7 +1,6 @@
 ---
 title: "ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ЖЕЛАНИЕ – ПИЩА – СЕКС"
 date: 2019-11-03
-description: "Предыдущая страница  >>> Оглавление  >>> Следующая страница   IV ЖЕЛАНИЕ – ПИЩА – СЕКС  Все обычные витальные движени..."
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks.html"
 url: "/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks/"

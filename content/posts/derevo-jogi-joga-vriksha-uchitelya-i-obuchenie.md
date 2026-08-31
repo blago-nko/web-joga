@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Учителя и обучение"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Относительно легко преподавать академический предмет, очень сложно обучат..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-uchitelya-i-obuchenie.html"
 url: "/derevo-jogi-joga-vriksha-uchitelya-i-obuchenie/"

@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар"
 date: 2019-10-21
-description: "Беллур Кришнамачар Сундарараджа Айенгар    Предисловие  Друзья и последователи,   В духовном мире, как и в физическом, вершины можно достич..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html"
 url: "/derevo-jogi-joga-vriksha-b-k-s-ajengar/"

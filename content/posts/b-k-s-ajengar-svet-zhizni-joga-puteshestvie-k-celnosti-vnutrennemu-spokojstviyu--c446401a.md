@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Яма: жизнь в истинной этике"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Яма: жизнь в истинной этике   Истинная этика не может исходить из внешних..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike/"

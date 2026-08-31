@@ -1,7 +1,6 @@
 ---
 title: "Введение - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2019-12-29
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Введение   Иегуди Минухина  Б К С Айенгар проделал в области столь трудн..."
 aliases:
   - "/2019/12/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Природа медитации"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая    Медитация есть единение - она заставляет разъединенные компоненты челове..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-priroda-meditacii.html"
 url: "/derevo-jogi-joga-vriksha-priroda-meditacii/"

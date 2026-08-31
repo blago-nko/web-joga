@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Сок"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Ограничение блуждающего ума известно как дхарана. Дхарана - это концентра..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-sok.html"
 url: "/derevo-jogi-joga-vriksha-sok/"

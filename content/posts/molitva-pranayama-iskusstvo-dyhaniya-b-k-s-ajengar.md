@@ -1,7 +1,6 @@
 ---
 title: "Молитва - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2019-12-29
-description: "Эта книга посвящается памяти моей возлюбленной жены Рамамани       Оглавление  <<< Следующая    Молитва   Я приветствую Господа Х..."
 aliases:
   - "/2019/12/molitva-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/molitva-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

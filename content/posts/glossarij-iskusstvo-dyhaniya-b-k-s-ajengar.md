@@ -1,7 +1,6 @@
 ---
 title: "Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-30
-description: "Предыдущая  >>> Оглавление Глоссарий А  — отрицательная частица, означающая «не», как в слове «ненасилие». Абхайя (abhaya) — свобод..."
 aliases:
   - "/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar/"

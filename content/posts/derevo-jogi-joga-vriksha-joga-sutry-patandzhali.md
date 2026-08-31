@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога Сутры Патанджали"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Практикующим йогу очень трудно осознать всю ее глубину. Все мы знаем, что..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-sutry-patandzhali.html"
 url: "/derevo-jogi-joga-vriksha-joga-sutry-patandzhali/"

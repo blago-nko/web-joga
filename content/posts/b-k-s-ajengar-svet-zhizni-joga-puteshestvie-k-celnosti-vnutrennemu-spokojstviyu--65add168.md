@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Сила и мудрость – шакти"
 date: 2019-12-14
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Сила и мудрость – шакти   Теперь пришло время вернуться к нашим собственн..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sila-i-mudrost-shakti.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sila-i-mudrost-shakti/"

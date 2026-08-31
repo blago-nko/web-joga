@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Плод"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Изучая выполнение асаны на глубоком уровне, я показал вам, как, даже выпо..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-plod.html"
 url: "/derevo-jogi-joga-vriksha-plod/"

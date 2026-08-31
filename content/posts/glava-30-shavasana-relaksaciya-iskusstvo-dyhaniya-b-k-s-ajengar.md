@@ -1,7 +1,6 @@
 ---
 title: "Глава 30. Шавасана (Релаксация) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 30. Шавасана (Релаксация) 1. «Шава» на Санскрите означает труп, «асана» - ..."
 aliases:
   - "/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar/"

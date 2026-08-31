@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога как искусство"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Йога, обычно, известна как философия или как путь, но немногие знают о то..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html"
 url: "/derevo-jogi-joga-vriksha-joga-kak-iskusstvo/"

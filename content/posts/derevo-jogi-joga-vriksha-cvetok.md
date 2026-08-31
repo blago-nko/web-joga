@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цветок"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   В выполнении асан задействованы два пути. Один путь эволюционный, выразит..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-cvetok.html"
 url: "/derevo-jogi-joga-vriksha-cvetok/"

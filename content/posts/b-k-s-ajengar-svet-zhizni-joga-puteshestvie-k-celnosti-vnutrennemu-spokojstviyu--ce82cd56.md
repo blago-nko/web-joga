@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Глава VI Блаженство: тело блаженства (ананда)"
 date: 2019-12-14
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава VI    Блаженство: тело блаженства (ананда)   Наше Путешествие вовну..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-vi-blazhenstvo-telo-blazhenstva-ananda.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-vi-blazhenstvo-telo-blazhenstva-ananda/"

@@ -1,7 +1,6 @@
 ---
 title: "Глава 13. Мудры и Бандхи - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-30
-description: "Предыдущая  >>> Оглавление  <<< Следующая  Глава 13. Мудры и Бандхи  1.  Чтобы следовать техникам Пранаямы, необходимо зн..."
 aliases:
   - "/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"

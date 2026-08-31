@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Цель может быть достигнута"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Цель может быть достигнута   Медитация – вот путь искоренения пяти корней..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-cel-mozhet-byt-dostignuta.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-cel-mozhet-byt-dostignuta/"

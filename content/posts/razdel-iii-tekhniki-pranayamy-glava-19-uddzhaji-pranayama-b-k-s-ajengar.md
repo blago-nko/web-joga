@@ -1,7 +1,6 @@
 ---
 title: "Раздел III Техники Пранаямы Глава 19. Удджайи Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-05-02
-description: "Предыдущая  >>> Оглавление  <<<  Следующая   Приставка «уд» означает увеличение или расширение. Она также содержит в себе..."
 aliases:
   - "/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html"
 url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
