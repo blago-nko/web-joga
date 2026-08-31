@@ -5,15 +5,29 @@ aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-vashe-sobstvennoe-puteshestvie.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-vashe-sobstvennoe-puteshestvie/"
 ---
+
 [![Айенгар](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinPjQKn2ZbTaMyT7YkSalp8dAwEWXzq_iLXMtTHVlGgB-hoGyHuQ9enPKRfbMf1YHGLXwyFAUyA9sx7mPKFpmKCQ9GUFwYBtdXxb7iu5lyJXlIaMTicQShqgVYVZTrk5UEryK_T7w3Yig/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258045.jpg "Айенгар")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinPjQKn2ZbTaMyT7YkSalp8dAwEWXzq_iLXMtTHVlGgB-hoGyHuQ9enPKRfbMf1YHGLXwyFAUyA9sx7mPKFpmKCQ9GUFwYBtdXxb7iu5lyJXlIaMTicQShqgVYVZTrk5UEryK_T7w3Yig/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258045.jpg)
+
+  
+
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-moe-puteshestvie.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-i-vnutrennee-puteshestvie-koshi-sloi-sushchnosti.html)
+
 ## Ваше собственное Путешествие
+
 Вся эта книга – о Жизни. Это попытка осветить ваш путь и путь других искателей, предоставив им некоторые ключи.  
+  
 В ней даются советы, раскрываются методы и философская подоплека йоги, изложенная в форме, доступной даже для начинающих. Единственное, чего вы никогда здесь не найдете, – это коротких путей или пустых обещаний для доверчивых читателей. Только неустанная практика помогла мне стать тем, кто я есть, но это не значит, что и вам потребуется семьдесят лет для того, чтобы научиться пожинать плоды этого метода. Быть может, вы будете вознаграждены уже в первый день, когда почувствуете, как что-то происходит в вашем теле, разуме и душе на очень глубоком уровне. Некоторые описывают это как небывалое ощущение легкости, спокойствия и радости.  
+  
 Чудо в том, что по прошествии семидесяти лет тело все еще преподносит мне сюрпризы и мои способности продолжают развиваться. Предсказать, что даст практика каждому из вас, невозможно, но определенно дары ее будут щедрыми. Правда, если вам кажется, что йога – это умение дотянуться до пальцев ног или встать на голову, вы упустили всю ее красоту, драгоценность и благодать.  
+  
 Йога раскрывает творческий потенциал Жизни. Каким образом? Она создает основу для реализации всех возможностей, показывая, как мы можем преуспеть на своем пути, а после приоткрывает завесу тайны над Высшим, Вселенским, Божественным началом. Свет, который йога способна пролить на Жизнь, – это нечто особенное. Он преобразует всех и каждого. Мы не просто начинаем видеть все в новом свете – все наше существо трепещет и видоизменяется, а новые знания возводятся в мудрость.  
+  
 Свет, о котором идет речь, – это настоящее просветление, Истина в чистом виде (сатья ), и именно она вкупе с ненасилием была главным принципом Махатмы Ганди, перевернувшего весь мир.  
+  
 Сократ наставлял каждого познать себя, то есть познать свое тело, ум и душу. Я часто сравниваю йогу с музыкой – это ритм тела, мелодия ума и гармония души, слитые воедино в симфонию жизни. Внутреннее Путешествие позволит вам изучить и объединить все эти аспекты вашего бытия. От бренного, или, как его еще называют, плотного тела, вы отправитесь на поиски тонких тел – энергетического (вместилища дыхания и чувств), ментального (где формируются ваши убеждения и желания), интеллектуального (кладези мудрости) и тела блаженства, частицы универсальной души.  
+  
 Далее я подробно объясняю это строение тел в древней традиции, но прежде чем мы остановимся на каждом из них в отдельной главе, вам предстоит расширить свое понимание внутреннего путешествия, которое оказывается тесно связанным с представлением йоги в виде лотоса из восьми лепестков. Мы также должны выявить связь между природой и душой, поскольку йога никогда не отделяла душу от сущего: они объединяются подобно тому, как небо сливается с землей на горизонте.  
+  
 Вам нет необходимости искать свободу вовне – она в вашем теле и уме, в душе и сердце. Вы уже сейчас находитесь на пороге просветления, освобождения и счастья в его высшем понимании, остается лишь совершить Путешествие внутрь себя.  
+
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-moe-puteshestvie.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-i-vnutrennee-puteshestvie-koshi-sloi-sushchnosti.html)

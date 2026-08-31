@@ -5,11 +5,19 @@ aliases:
   - "/2020/01/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
+
 [![АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUb6o8lS07MIC_fRFkqljdC6vnapFYqT-tQu2Nl0uV_oK2eoP4diC6mXzx8WVOr-_bN4AphRUJT_pabCObVBmiBe0KAzcE6_-xSZCCoe3ry8XNvjA5fEBKw04ko-9VTkK1uHTrfCiGXAs/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580119.jpg "АЙЕНГАР")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUb6o8lS07MIC_fRFkqljdC6vnapFYqT-tQu2Nl0uV_oK2eoP4diC6mXzx8WVOr-_bN4AphRUJT_pabCObVBmiBe0KAzcE6_-xSZCCoe3ry8XNvjA5fEBKw04ko-9VTkK1uHTrfCiGXAs/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580119.jpg)
+
+  
+
 [Предыдущая](https://joga.blagorussia.ru/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/glava-2-stupeni-jogi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+
 ## Часть первая
+
 ### Раздел I. Теория Пранаямы
+
 #### Глава 1. Что есть Йога?
+
 1. Никто не знает безвременного, изначального абсолютного Единого, никто не знает, когда мир начал существовать. Бог и природа существовали до появления человека, но по мере того как человек развивался, он совершенствовал себя и начинал осознавать свой потенциал. Таким путем возникла цивилизация В этот процесс были вовлечены слова, развились концепции Бога (Пуруша) и природы (пракрити), религии (дхарма) и йоги,
 2. Так как очень трудно дать четкое определение этим концепциям, каждому человеку приходится интерпретировать их в соответствии со своим пониманием. Когда человек пойман в паутину мирских удовольствий, он обнаруживает, что отстранен от Бога и природы. Он становится жертвой полюсов удовольствия и боли, добра и зла, любви и ненависти, постоянного и преходящего.
 3. Захваченный этими противоположностями, человек почувствовал потребность в личном божестве (Пуруша), который есть высший, неподверженный страданиям, незатрагиваемый действиями  и  реакциями,  свободный от переживания радости  и печали.
@@ -28,4 +36,5 @@ url: "/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-
 16. Сначала йога занимается здоровьем, мощью и завоеванием тела. Затем она поднимает покров различия между телом и умом. В конечном итоге она ведет садхаку к миру и незамутненной чистоте.
 17. Йога систематически учит человека стремиться к божественному в себе, и делать это следует тщательно и активно. Благодаря ей, он выводит себя из лабиринта собственного тела к внутренней самости Он следует от тела к нервам, а от нервов к чувствам. От чувств — в ум, который контролирует эмоции. От ума он проникает в интеллект, который является проводником причины. От интеллекта его путь лежит к воле и оттуда — к сознанию (чит-те). Последняя ступень — от сознания к его Самости, к самому его существу (Атма).
 18. Таким образом, йога ведет садхаку от невежества к знанию, от темноты — к свету и от смерти к бессмертию.
+
 [Предыдущая](https://joga.blagorussia.ru/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/glava-2-stupeni-jogi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
