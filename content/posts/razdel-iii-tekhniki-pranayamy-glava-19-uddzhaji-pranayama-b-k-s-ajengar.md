@@ -6,338 +6,517 @@ aliases:
 url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
+
 Приставка «уд» означает увеличение или расширение. Она также содержит в себе смысл превосходства и мощи. «Джайя» означает победу или успех и, с другой точки зрения, самообладание. В удджайи легкие полностью расширены, а грудная клетка выпячена, как у могущественного завоевателя.
+
 Все стадии этой пранаямы, за исключением содержащих задержки (кумбхаки), можно выполнять в любое время. Однако если в сердце ощущается тяжесть, переполненность или боль, или же напряжена диафрагма, или если вы взволнованны и нарушен пульс, то, перед тем как лечь, положите на пол два деревянных бруска (каждый около одного квадратного фута и 1 1/2 дюйма толщиной), один поверх другого. Расположите спину на брусках так, чтобы ягодицы были ниже планок, а руки вытянуты вниз (фот. 79 - 81). Также можно воспользоваться валиком, как показано на фот. 82. Для удобства и расслабления положите на ноги груз, как на фот. 83. Вместо брусков можно использовать две подушки (фот. 84). Если из-за физического недостатка или болезни нельзя выпрямить ноги, согните колени и расположите нижние части ног на валике или стуле (фот. 85 и 86).
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZzCJ3PPAI-t6v_-z2qdAtsxHoYKmYnJTsjZtz1CLW7x-5NommxUwyFEn6IL4bi_m90P6kSzjapvFjqvpzXRxoHfgXjXjYl57g-AHw4YVoML9abl4V6PEgm5sy9H0YBxnZEDCnBuBW7g/w640-h269-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE79.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 79</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwtLo6aoZgN-kVsJW3exh_l2M1VGBTUGm2d7cpcHSAKluzgAy43CwxmEgAujDBSLT08HJLdBkBurTkt44Di5p-329-6-sPcSy1WFLaQY-BdasGqkSILQX0TQYWAbsNuRTVpCE0mSV0qcw/w640-h337-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE80.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 80</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFtc9H07eh1ZlyrrM1INUlg652beZSsszPUO3rwhlJO0RFj7tEIjEfO1c-GI7jnTyL2gUv9zvc4UG8tD6Kwqgm3wCmidvrTtfX7w18LbuNNdA869zvWFpr-I-PAlW2iOxJWH3I0jOgcyA/w640-h148-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE81.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 81</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj273o9Pc9EhgNheYbqfw5IlwRixcL1lUMG4PzWLTm9yZfbzPGySqNIy5-_GTp_DDHmstKzfmAaRHe0KTDqgmhz4YJOeO0p1tVKpgHitB_fdYXQ1z-Mwa4GgycSYzujzs9l0bBBr1cSwlo/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE82.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 82</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicQkL4y2XQkjC0nplCNdFrc-pevikg5EU2LdXiXiDvW0R99OqKyK5PFybi3YVeCogh1HgBh-EzsyfGUt5deYNd4VBUPaGani53iA82Gp5qCFyvNfHFdRnpmflnrrv4aRHQaK-bqw6hDnc/w640-h218-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE83.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 83</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnqB2HG6CEI2LW-4kNPUue8YZW-LKM9056mzlqQoXhD7Vpw_RG0WCfdUR6r-XdThpBDwqhRh6PyPLP0pAWXY_mpbvvVJUszQWCU8R8FyzLtPXT6nnJe5E9HBqpW3KfzrHsCQ16TDZ8fOs/w640-h311-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE84.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 84</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvo-BI8MiPgauXto4Y4gaLSsr0UufQgB_hEArCN5G42UzPthwuoKXJaPcNoun9tDn3_7-b9h_GJaX404rre0Y2na5VWpqdx7uJ99YdEZqeJ4r-gIvGiLprGB4Dh511880BEyijmJzxM5I/w640-h210-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE85.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 85</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/w640-h389-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE86.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 86</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZzCJ3PPAI-t6v_-z2qdAtsxHoYKmYnJTsjZtz1CLW7x-5NommxUwyFEn6IL4bi_m90P6kSzjapvFjqvpzXRxoHfgXjXjYl57g-AHw4YVoML9abl4V6PEgm5sy9H0YBxnZEDCnBuBW7g/w640-h269-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE79.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 79</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwtLo6aoZgN-kVsJW3exh_l2M1VGBTUGm2d7cpcHSAKluzgAy43CwxmEgAujDBSLT08HJLdBkBurTkt44Di5p-329-6-sPcSy1WFLaQY-BdasGqkSILQX0TQYWAbsNuRTVpCE0mSV0qcw/w640-h337-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE80.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 80</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFtc9H07eh1ZlyrrM1INUlg652beZSsszPUO3rwhlJO0RFj7tEIjEfO1c-GI7jnTyL2gUv9zvc4UG8tD6Kwqgm3wCmidvrTtfX7w18LbuNNdA869zvWFpr-I-PAlW2iOxJWH3I0jOgcyA/w640-h148-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE81.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 81</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj273o9Pc9EhgNheYbqfw5IlwRixcL1lUMG4PzWLTm9yZfbzPGySqNIy5-_GTp_DDHmstKzfmAaRHe0KTDqgmhz4YJOeO0p1tVKpgHitB_fdYXQ1z-Mwa4GgycSYzujzs9l0bBBr1cSwlo/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE82.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 82</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicQkL4y2XQkjC0nplCNdFrc-pevikg5EU2LdXiXiDvW0R99OqKyK5PFybi3YVeCogh1HgBh-EzsyfGUt5deYNd4VBUPaGani53iA82Gp5qCFyvNfHFdRnpmflnrrv4aRHQaK-bqw6hDnc/w640-h218-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE83.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 83</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnqB2HG6CEI2LW-4kNPUue8YZW-LKM9056mzlqQoXhD7Vpw_RG0WCfdUR6r-XdThpBDwqhRh6PyPLP0pAWXY_mpbvvVJUszQWCU8R8FyzLtPXT6nnJe5E9HBqpW3KfzrHsCQ16TDZ8fOs/w640-h311-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE84.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 84</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvo-BI8MiPgauXto4Y4gaLSsr0UufQgB_hEArCN5G42UzPthwuoKXJaPcNoun9tDn3_7-b9h_GJaX404rre0Y2na5VWpqdx7uJ99YdEZqeJ4r-gIvGiLprGB4Dh511880BEyijmJzxM5I/w640-h210-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE85.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 85</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/w640-h389-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE86.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 86</figcaption></figure>
+
 Когда спина расположена таким образом, мышцы тазового пояса стимулируют вдох. Это облегчает любое напряжение и смягчает диафрагму. Легкие и дыхательные мышцы функционируют плавно, и дыхание становится глубоким. Практика этой пранаямы приносит удивительное облегчение больным с увеличенным сердечным желудочком и врожденными пороками сердца. Более того, она успокаивает страх, мучающий сердечных больных, опасающихся, что малейшее движение ухудшит их состояние.
-###
+
+### 
+
 Примечания
+
 1. Все ступени всех пранаям начинаются с выдоха (речака) и заканчиваются вдохом (пурака). Сперва вы должны выдохнуть без остатка весь воздух, находящийся в легких, а затем начинать пра-наяму. Не заканчивайте пранаяму выдохом, это создает напряжение в сердце, а сделайте нормальный вдох в конце каждой ступени пранаямы. Не используйте усилие,
+
 2. Пути входящего и исходящего дыхания в синусовых областях различны. При вдохе дыхание касается внутренней поверхности синусовых проходов в нижней части (фот. 87). При выдохе оно касается внешней поверхности в ее верхней части (фот. 88).
+
 3. Все вдохи выполняются с шипящим звуком «сссс», а все выдохи - с придыханием - легким «хххх»[1].
+
 4. На начальных этапах пранаямы при сидении используйте опору, как описано в [гл. 11](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html), пункт 30 (фот. [42, 43](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 5. Хотя шавасана и рекомендуется в конце каждой пранаямы, если вы хотите делать более одной ступени или несколько различных пранаям последовательно, то шавасану следует выполнять только в конце занятия.
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTgfM-5Rw8E0HTSjq46cLM84JydXxm0V4DQZ95qp7SCBL90pc4eJe7nBWUtuvQJ_Nb4R2s2uK5P7XGkVZ_cGpQNMqUrllcwgMutFD6jtEeLdRJ0aXhxM2h8yHkVAVn6HLjdX76ndpSpf8/w570-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE87.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 87</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSZJGxwibgx-PRxeQHRytAQW9SvcMPJOq6ZniGd81GGh_6YE4S4zK9zFGX70o77na9LzamkeyWvd85SNq3-304LG6hfjTGffYYpInFzBB_oh6Sl4n52rzzfSPqjQDAg3topB73lYnmOcQ/w595-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE89.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 88</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/w590-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE88.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 89</figcaption>
-</figure>
-##
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTgfM-5Rw8E0HTSjq46cLM84JydXxm0V4DQZ95qp7SCBL90pc4eJe7nBWUtuvQJ_Nb4R2s2uK5P7XGkVZ_cGpQNMqUrllcwgMutFD6jtEeLdRJ0aXhxM2h8yHkVAVn6HLjdX76ndpSpf8/w570-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE87.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 87</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSZJGxwibgx-PRxeQHRytAQW9SvcMPJOq6ZniGd81GGh_6YE4S4zK9zFGX70o77na9LzamkeyWvd85SNq3-304LG6hfjTGffYYpInFzBB_oh6Sl4n52rzzfSPqjQDAg3topB73lYnmOcQ/w595-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE89.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 88</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/w590-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE88.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 89</figcaption></figure>
+
+## 
+
 Ступень I
+
 Эта подготовительная ступень обучает практикующего искусству осознания ощущений в легких; она ведет к ровному дыханию.
-###
+
+### 
+
 Техника
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqA3AlIrUDfDrVq_l927199MO0U1P6C0QZLMGYldn1lX04mjojX8VFp4mNHS9Cs7kBPI3Ach-TFLozmnKV2Oz3aKpMcmyIfm3zgOpcZ15nO6XKBOWzmyzQSAuE26RkKJd69OJPVSQPq_U/w640-h274-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE90.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 90</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqA3AlIrUDfDrVq_l927199MO0U1P6C0QZLMGYldn1lX04mjojX8VFp4mNHS9Cs7kBPI3Ach-TFLozmnKV2Oz3aKpMcmyIfm3zgOpcZ15nO6XKBOWzmyzQSAuE26RkKJd69OJPVSQPq_U/w640-h274-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE90.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 90</figcaption></figure>
+
 1. Расстелите одеяло, сложив его в длину, на полу. Поверх него, точно кромка к кромке, под голову положите другое одеяло, сложенное втрое или вчетверо, таким образом, чтобы оно находилось под туловищем и затылком (фот, 89).
+
 2. Лягте на спину и сложите одеяло. Сохраняя тело вытянутым, не допускайте, чтобы грудная клетка была впалой- Закройте глаза и полежите спокойно одну или две минуты ([фот. 50](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)). Покройте глаза мягкой тканью для быстрой релаксации лицевых мышц (фот. 90).
+
 3. Дышите нормально. Сознательно наблюдайте и чувствуйте поток дыхания на всем его протяжении.
+
 4. По мере того как вы вдыхаете, удостоверьтесь, что оба легких наполняются равномерно. Чувствуйте, как грудная клетка расширяется в стороны и поднимается. Синхронизируйте эти два движения.
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrowudtPkkO8fLhQsjk_LxLDvoa0su_AYvSfHdREu6io2_rMMVBNU1dap74thyu6kdoOh9zjJvXgfYF0EpL1Vj0YHvPU3licw6GM_SqAnn9Tgr0A2igv_fzvpP3qEWCwVq32b9VLw4vJE/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 91</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcR7TJ8F04A1pePqzHeuincBTHpB4t6bKXxPnSLTJD8Tzq2fmf0GE-Io3Vol-N0nj8vBILsIfp63itU8tVsY26oWU4gR6PG9NpHOm8LpJpbbzqcCBPMeTzhaaL6dqBVlA5mlqWGucIl0c/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 92</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT1WzAeW6Gv8XEjJ46FOO__KYGxXbEiyUojInFk8OyA9hLtBPhUk4XF6lgrncSlAu4aANXGFEKB-QkRKzKlhm55OJGlfwUGYctbgMs3daecPUe-LtdAd52ngzhWXtHicIlcHOXqqo6luM/w640-h221-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE92.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 93</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNNEPCf_TqOzBeeTT6uhOaHCjjPTZqoNpRpXVWeIoc7lhAZ3wbaiFIpnRGPQUNAwjcCUw463n6KIJzuvA8xJAhHn-waDmVk92IiB3bvtx8WuAnb5L1In1Qel9CvXlQ7Xn9987XKRpA-9M/w640-h174-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE94.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 94</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/w640-h183-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE95.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 95</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrowudtPkkO8fLhQsjk_LxLDvoa0su_AYvSfHdREu6io2_rMMVBNU1dap74thyu6kdoOh9zjJvXgfYF0EpL1Vj0YHvPU3licw6GM_SqAnn9Tgr0A2igv_fzvpP3qEWCwVq32b9VLw4vJE/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 91</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcR7TJ8F04A1pePqzHeuincBTHpB4t6bKXxPnSLTJD8Tzq2fmf0GE-Io3Vol-N0nj8vBILsIfp63itU8tVsY26oWU4gR6PG9NpHOm8LpJpbbzqcCBPMeTzhaaL6dqBVlA5mlqWGucIl0c/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 92</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT1WzAeW6Gv8XEjJ46FOO__KYGxXbEiyUojInFk8OyA9hLtBPhUk4XF6lgrncSlAu4aANXGFEKB-QkRKzKlhm55OJGlfwUGYctbgMs3daecPUe-LtdAd52ngzhWXtHicIlcHOXqqo6luM/w640-h221-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE92.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 93</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNNEPCf_TqOzBeeTT6uhOaHCjjPTZqoNpRpXVWeIoc7lhAZ3wbaiFIpnRGPQUNAwjcCUw463n6KIJzuvA8xJAhHn-waDmVk92IiB3bvtx8WuAnb5L1In1Qel9CvXlQ7Xn9987XKRpA-9M/w640-h174-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE94.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 94</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/w640-h183-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE95.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 95</figcaption></figure>
+
 5. Выдыхайте спокойно, опорожняя легкие равномерно с обеих сторон. Если легкие опорожняются неравномерно, откорректируйте этот процесс.
+
 6. Продолжайте проделывать вышеописанное на протяжении десяти минут, сохраняя глаза закрытыми все это время.
-###
+
+### 
+
 Результаты
+
 Вышеописанная практика развивает внимание, укрепляет нервы, облегчает всякое напряжение в легких и подготавливает их к глубокому дыханию.
-##
+
+## 
+
 Ступень II
+
 Эта подготовительная ступень учит практикующего увеличивать продолжительность каждого выдоха и помогает ему постичь искусство выдыхания.
-###
+
+### 
+
 Техника
+
 1. Лягте, следуя инструкциям, данным в пунктах 1 и 2 ступени I (фот. 89)
+
 2. Закройте глаза, не напрягая при этом глазные яблоки, сохраняйте их пассивными и восприимчивыми и обратите взгляд вовнутрь ([фот 54](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 3. Сохраняйте внутренний слух бдительным и восприимчивым,
+
 4 Сначала спокойно выдохните, пока не почувствуете, что легкие совершенно пусты, однако не оказывая при этом давления на абдоминальные органы (фот. 91).
+
 5. Сделайте нормальный вдох через нос. Это - вдох (пурака).
+
 6. Выдохните медленно, глубоко и равномерно до совершенного опустошения легких. Это — выдох (речака)
+
 7. Продолжайте дышать таким образом на протяжении десяти минут, затем расслабьтесь.
+
 Акцент здесь делается на медленном, глубоком и устойчивом выдохе.
-###
+
+### 
+
 Результаты
+
 Эта ступень успокаивает нервы и мозг. Медленные, равномерные и глубокие выдохи идеальны для страдающих сердечными расстройствами и гипертонией.
-##
+
+## 
+
 Ступень III
+
 Эта подготовительная ступень обучает практикующего увеличивать продолжительность каждого вдоха и познать искусство вдоха.
-###
+
+### 
+
 Техника
+
 1. Лягте, как это описано в ступени I, пунктах 1 и 2. Затем следуйте инструкциям, данным в ступени II, пунктах 2 и 4.
+
 2. Расслабьте диафрагму и растяните ее в стороны во время вдоха, не раздувая при этом брюшную полость (фот. 92). Чтобы предотвратить это, не позволяйте диафрагме сворачиваться или подниматься выше уровня плавающих ребер (фот. 93 и 94).
+
 3. Тщательно сделайте медленный, глубокий, устойчивый свистящий вдох через нос. Удостоверьтесь в том, что оба легких наполнены равномерно.
+
 4. Слушайте звук дыхания внимательно и поддерживайте его ритм в течение всего вдоха.
+
 5. Наполните легкие до предела, пока звук вдоха станет неслышимым.
+
 6. С глубоким вдохом связана тенденция поворачивать глазные яблоки вверх (фот. 95). Сознательно опустите их и сосредоточьтесь на легких.
+
 7 В начале выдоха остановите движение диафрагмы, затем выдохните медленно, но не глубоко. Здесь выдох должен быть немного длиннее, чем обычный.
+
 8. Продолжайте таким образом в течение десяти минут, затем расслабьтесь.
+
 9. Особое внимание здесь уделяется медленному, устойчивому вдоху. Напомню еще раз, слушайте звук дыхания и поддерживайте его ритм на протяжении всего цикла. Чтобы добиться лучшего ритмичного глубокого дыхания, рекомендуется использовать две дощечки, положив их под спину, как описано в начале этой главы (фот. 80 - 86).
-###
+
+### 
+
 Результаты
+
 Эта подготовительная практика хороша для людей, страдающих низким кровяным давлением, астмой и депрессией. Она укрепляет нервную систему и вселяет уверенность.
-##
+
+## 
+
 Ступень IV
+
 Эта подготовительная ступень обучает практикующего увеличивать продолжительность каждого вдоха и выдоха. Она помогает овладеть искусством глубокого вдоха и глубокого выдоха.
-###
+
+### 
+
 Техника
+
 1. Лягте, как описано в ступени I, пунктах 1 и 2. Затем следуйте инструкциям, данным в ступени II, пунктах 2 - 4.
+
 2. Теперь вдохните, следуя техникам, данным в пунктах 2 — 5 ступени III.
+
 3. Сожмите диафрагму и расслабьте ее, постепенно выдыхая глубоко, медленно и равномерно, до тех пор, пока не почувствуете, что легкие пусты.
+
 4. Это составляет один цикл. Повторяйте эти циклы в течение десяти- - пятнадцати минут, затем расслабьтесь.
-###
+
+### 
+
 Результаты
+
 Эта ступень дает энергию, успокаивает и тонизирует нервы, ступени I- - IV являются подготовительными к удджайя пранаяме, выполняемой лежа.
-##
+
+## 
+
 Ступень V
+
 Дыхание здесь аналогично дыханию в ступени I, но выполняется сидя. Это обучает искусству наблюдения и ведет к равномерному дыханию.
-###
+
+### 
+
 Техника
+
 1. Сядьте в падмасану, сиддхасану, свастикасану или вирасану, или же в любую другую удобную позу.
+
 2. Посидите немного спокойно, прочно удерживая позвоночник и спину прямыми, но спинные мышцы мягкими и подвижными для регулирования положения туловища. Прочность позвоночника должна быть уравновешена подвижностью спинных мышц, которые расслабляются и сокращаются с потоком выходящего и исходящего дыхания. Абсорбцию дыхания следует синхронизировать с подвижностью спинных мышц. Чем медленнее их движения, тем лучше абсорбция дыхания.
+
 3. Опустите голову к туловищу и поднимите внутренний каркас грудной клетки навстречу опускающемуся подбородку. Расположите подбородок во впадине, находящейся под грудиной. Это - подбородочный замок (джаландхара бандха) (фот. 57). Если вы не можете делать это полностью, наклоните голову насколько возможно низко, без напряжения, и продолжайте практику ([фот. 63](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 4. Опустите руки и расположите тыльную сторону запястий на коленях ([фот. 32](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)) или соедините кончики указательных пальцев каждой руки с кончиками больших пальцев, а остальные пальцы выпрямите (джанана мудра) ([фот. 13](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 5. Не напрягайте глазные яблоки, как на фот. 95, но сохраняйте их пассивными и восприимчивыми. Закройте глаза и обратите взгляд внутрь ([фот. 54](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 6. Сохраняйте внутренний слух бдительным и восприимчивым.
+
 7. Сперва спокойно выдохните насколько возможно плавно, не оказывая давления на органы брюшной полости (фот. 96 и 97). Обратите внимание на точки на туловище, которые показывают движение кожи при выдохе, вдохе и задержке.
+
 8. Следуйте техникам, данным в пунктах 3 - 6 ступени I, наблюдая поток дыхания. Делайте это в течение десяти минут и затем несколько минут отдохните в шавасане.
-##
+
+## 
+
 Ступень VI
+
 Дыхание в этой ступени аналогично дыханию в ступени II, но выполняется сидя. Практикующий обучается увеличивать продолжительность каждого выдоха и овладевает искусством выдоха.
-###
+
+### 
+
 Техника
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBSjV0wOe2jqh9WpFlC-HPsPPnXcEoaBIhwoMhQDiUGcTrdTdxxGssyOeKmFYfRZB98Tk-XcZ6W1m4DAGNDbXNOF_fslmXNZpBHjMMyhh4b-r6K12_ak76I4_KXz6IjJm8GDDHYC0V44k/w520-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE96.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 96</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjq7s0_v5Vm9fe6ITdWZk55ldk7jsGP0e_erT57zD4XZTgaubRcrE-hy2ZVUwG9O6luMq4vnRRMXHdNxPtwY8HadAw-O0zPc0aevjVvtMRbI4kKzGWqIheE-WnUc5HMMfv8wNAFApSF34g/w400-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE97.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 97</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0HlgNG47oPmSAgMkEjGABq2wURGJB6FSzY4gnhHSH70SogYksPgiTnV7SbxjvJPo5uZjJz7ScaEBU3AO316uXFul9FUgvXA54scjgIWZk5KyoIOMzrCtRKmlPehw56LHoNzqAnFSOKUI/w528-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE98.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 98</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/w398-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE99.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 99</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBSjV0wOe2jqh9WpFlC-HPsPPnXcEoaBIhwoMhQDiUGcTrdTdxxGssyOeKmFYfRZB98Tk-XcZ6W1m4DAGNDbXNOF_fslmXNZpBHjMMyhh4b-r6K12_ak76I4_KXz6IjJm8GDDHYC0V44k/w520-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE96.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 96</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjq7s0_v5Vm9fe6ITdWZk55ldk7jsGP0e_erT57zD4XZTgaubRcrE-hy2ZVUwG9O6luMq4vnRRMXHdNxPtwY8HadAw-O0zPc0aevjVvtMRbI4kKzGWqIheE-WnUc5HMMfv8wNAFApSF34g/w400-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE97.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 97</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0HlgNG47oPmSAgMkEjGABq2wURGJB6FSzY4gnhHSH70SogYksPgiTnV7SbxjvJPo5uZjJz7ScaEBU3AO316uXFul9FUgvXA54scjgIWZk5KyoIOMzrCtRKmlPehw56LHoNzqAnFSOKUI/w528-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE98.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 98</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/w398-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE99.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 99</figcaption></figure>
+
 1. Сядьте в любую удобную позу, следуя техникам, данным в пунктах 1 7 ступени V. Выдохните из легких весь находящийся там воздух (фот. 96).
+
 2. Сделайте нормальный вдох через нос.
+
 3. Выдохните медленно, глубоко и равномерно, пока не почувствуете, что легкие пусты.
+
 4. Будьте внимательны к позе во время выдоха и слушайте внимательно придыхательный звук дыхания. Поддерживайте его ритм и плавность на протяжении всего выдоха.
+
 5. Этим завершается один цикл. Повторяйте эти циклы в течение десяти минут, вдохните, затем отдохните в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 Акцент здесь делается на медленных, глубоких и равномерных выдохах.
-##
+
+## 
+
 Ступень VII
+
 Дыхание в этой ступени подобно дыханию в ступени II, но выполняется сидя. Здесь практикующий учится увеличивать продолжительность каждого вдоха и искусству вдоха.
-###
+
+### 
+
 Техника
+
 1. Сядьте в любую удобную позу, следуя технике, данной в пунктах 1-7 ступени V и выдохните (фот. 96).
+
 2. Тщательно вдохните через нос - медленно и глубоко, следуя технике, описанной в пунктах 3-7 ступени III.
+
 3. Выдохните медленно, но не глубоко, делая выдох немного дольше обычного.
+
 4. Это завершает один цикл. Повторяйте эти циклы в течение десяти минут, вдохните и расслабьтесь в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)) ступени V и VII являются подготовительными к практике удджайи пранаямы, выполняемой сидя.
-##
+
+## 
+
 Ступень VIII
+
 Теперь начинайте собственно удджайи пранаяму, с глубоким вдохом и выдохом.
-###
+
+### 
+
 Техника
+
 1. Сядьте в любую удобную позу, следуя техникам, данным в пунктах 17 ступени V и выдохните из легких весь воздух (фот. 96).
+
 2. Сделайте глубокий, медленный, равномерный вдох через нос.
+
 3. Слушайте шипящий звук дыхания. Контролируйте, выверяйте и синхронизируйте его поток, тон и ритм. Поток контролируется резонансом звука, а тон - потоком дыхания. Это - ключ к успеху в пранаяме.
+
 4. Наполните легкие от основания до верхушек, до самых ключиц. Сознательно старайтесь провести дыхание в самые отдаленные части легких (фот, 98 - вид спереди, фот. 99 - вид сзади, фот 100 — вид сбоку).
+
 5. Непрерывно осознавайте входящее дыхание.
+
 6. По мере того как вы вдыхаете, тело, легкие, мозг и сознание должны быть скорее воспринимающими, чем деятельными. Дыхание принимается, как божественный дар, и не должно подвергаться насилию.
+
 7. Не раздувайте брюшную полость при вдохе. Все время удерживайте диафрагму ниже ребер. Следите за этим во всех видах пранаямы. Если диафрагма поднята выше плавающих ребер, то вместо расширения грудной клетки будет раздуваться брюшная полость.
+
 8. Движения, описанные в пунктах 4, 6 и 7, выполняются посредством подтягивания всей абдоминальной области от лобковой кости к грудине, по направлению к позвоночнику, а затем — к голове. Это автоматически массирует внутренние органы.
+
 9. При глубоком вдохе внутренние межреберные мышцы передней части тела поднимаются вверх. Непосредственно перед выдохом происходит дальнейшее поднятие этих мышц, которое подготавливает практикующего к выдоху.
+
 10. Теперь начинается процесс глубокого выдоха, в котором туловище и диафрагма играют активную роль.
+
 11. Поддерживайте межреберные мышпы в поднятом положении, так же как и диафрагму, и начинайте выдох. Позвольте дыханию выходить медленно, глубоко и устойчиво.
+
 12. После нескольких секунд сжатие туловища медленно расслабляется само по себе, до тех пор пока легкие не опустошатся пассивно. Сохраняйте постоянное осознание во время выдоха.
+
 13. Это завершает один цикл. Повторяйте в течение десяти— пятнадцати минут, сохраняя глаза закрытыми, а конечности расслабленными. Вдохните и затем лягте и отдохните в шавасане ([фот 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 14. Вдохните с теплотой, приподнятостью и радостью, как будто получаете жизненную силу как подарок Бога. Выдохните с чувством благодарности, молча выражая свое смирение как сдачу на милость Господу.
+
 15. В каждом вдохе и выдохе существует незначительная пауза, во время которой мышцы туловища саморегулируются. Научитесь осознавать это.
-###
+
+### 
+
 Результаты
+
 Эта пранаяма вентилирует легкие, успокаивает и тонизирует нервную систему. Как результат глубоких дыхательных действий, кровь переносит запас дающей жизнь энергии к мельчайшим частицам тканей. Это уменьшает количество флегмы, облегчает боль в груди, и голос становится мелодичным.
-##
+
+## 
+
 Ступень IX
+
 Это - ступень для начинающих, в которой вводится задержка дыхания при наполненных легких. Это намеренная внутреняя задержка (сахита антара кумбхака).
-###
+
+### 
+
 Техника
+
 1. Сядьте в любой удобной позе, следуя техникам, данным в пунктах 1 — 7 ступени V, и выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+
 2. Вдохните и задержите дыхание. Держите туловище устойчиво и будьте внимательны (фот.: вид спереди — 101; вид сзади -102; вид сбоку — 103).
+
 3. Не поднимайте переносицу, глаза или голову на протяжении всей задержки ([фот. 78](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 4. Ощутите, как дыхание пронизывает самые отдаленные поры кожи туловища и осознайте этот процесс,
+
 5. После нескольких секунд это осознавание начнет утрачивать свою силу. В тот момент, когда это произойдет, сделайте нормальный вдох. Это — составит один цикл. Выполните его десять — пятнадцать раз.
+
 6. Если во время занятий чувствуется утомление, эти циклы можно заменить нормальным дыханием.
+
 7. Когда практика уже не представляет трудности, интенсифицируйте её до тех порпока сможете задержать дыхание на десять — пятнадцать секунд без напряжения. Чтобы увеличить продолжительность задержки, поднимите диафрагму к легким, прочно удержите ее и подтяните живот вовнутрь и вверх к позвоночнику. Затем задержите дыхание, не поднимая переносицу ([фот. 78](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 8. Если ощущается тяжесть в легких, напряжение в висках и вокруг них или в голове, это указывает на то, что возможности превышены В таком случае уменьшите продолжительность внутренней задержки. Переход от задержки на вдохе к выдоху должен быть плавным.
+
 9. Выдохните медленно, не теряя контроль над туловищем, диафрагмой и легкими. После завершения практики сделайте несколько глубоких дыханий и затем отдохните в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
-###
+
+### 
+
 Примечание
+
 Внутреннюю задержку можно выполнять лежа, положив под голову подушку, имитируя таким образом, джаландхара бандху (фот. 77).
-###
+
+### 
+
 Результаты
+
 Практика сахита антара кумбхаки развивает гармонию между дыханием и легкими, между нервами и умом. Если выполнять ее правильно, она вызывает динамическое состояние, в котором тело ощущается как до краев наполненным энергией. Она повышает работоспособность, уничтожает отчаяние, порождает надежду. Творя энергию, она укрепляет нервную систему и развивает выносливость. Это идеальное упражнение для тех, кто страдает от низкого кровяного давления, апатии, лени и сонливости.
+
 Однако антара кумбхака не рекомендуется людям, страдающим гипертонией и сердечными расстройствами
-##
+
+## 
+
 Ступень X
+
 Эта ступень - для начинающих, на которой вводится задержка дыхания при пустых легких. Она называется намеренной внешней задержкой (сахита бахья кумбхака).
-###
+
+### 
+
 Техника
+
 1. Сядьте в любую удобную позу, следуя технике, данной в пунктах 1 - 7 ступени V, и выдохните весь воздух, находящийся в легких (фот. 96).
+
 2. Вдохните нормально и выдохните равномерно и медленно, опустошая легкие, насколько это возможно без напряжения.
+
 3. Оставайтесь пассивными и задержите дыхание, насколько это возможно (фот. 96), затем сделайте нормальный вдох. Это один цикл. Повторите его десять-двенадцать раз или продолжайте в течение десяти минут.
+
 4. Сокращение брюшной полости, давление в висках или судорожный вдох указывают на то, что вы достигли предела своих возможностей в наружной задержке (бахья кумбхака); в таком случае уменьшите продолжительность задержки. Переход ко вдоху должен быть плавным. Если во время практики ощущается утомление, циклы этой ступени можно чередовать с нормальным дыханием.
+
 5. Сделайте несколько глубоких дыханий и лягте в шавасане ([фот, 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
-###
+
+### 
+
 Примечание
+
 Внешнюю задержку также можно делать лежа, положив под голову по душку ([фот 77](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
-###
+
+### 
+
 Результаты
+
 Бахья кумбхака особенно хороша для людей, излишне напряженных и страдающих повышенным кровяным давлением. Она вызывает пассивное состояние, ощущение спокойствия, как будто человек — пустой сосуд, плавающий по воде. Однако она не рекомендуется людям, страдающим от депрессий, меланхолии и низкого кровяного давления.
-##
+
+## 
+
 Ступень XI
+
 Это внутренняя задержка (ангара кумбхака) для продвинутых учеников.
-###
+
+### 
+
 Техника
+
 1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1-7 ступени V, и выдохните из легких весь воздух (фот. 96).
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA-5cCTnGfD15rPYmAfkSxP1qpfKfhXgrlPzvpMAoqwZgMt8KLOe_JO9fuINIi9rvx_geysrTePXAkpQ25kaFAt0CdBYn8nPLQ0Cd-z75Oh01mz7Rz6QcMMtzRW_7ulQMSVBQia9_S2sU/w448-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE100.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 100</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilQBodhNAttHcENCyWOeP5iMAnZtWWBJOcIyUMTq5X_HIOiw_NggeKh4jAQmzr7c_vHPSBs_dl86fnvSu-9Ij-DTR9qoDKNeDRTAg-onDweH52UWqx8l4wbFk3fbaPcEdaAfRLm9guF9Y/w525-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE101.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 101</figcaption>
-</figure>
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/w405-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE102.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 102</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA-5cCTnGfD15rPYmAfkSxP1qpfKfhXgrlPzvpMAoqwZgMt8KLOe_JO9fuINIi9rvx_geysrTePXAkpQ25kaFAt0CdBYn8nPLQ0Cd-z75Oh01mz7Rz6QcMMtzRW_7ulQMSVBQia9_S2sU/w448-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE100.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 100</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilQBodhNAttHcENCyWOeP5iMAnZtWWBJOcIyUMTq5X_HIOiw_NggeKh4jAQmzr7c_vHPSBs_dl86fnvSu-9Ij-DTR9qoDKNeDRTAg-onDweH52UWqx8l4wbFk3fbaPcEdaAfRLm9guF9Y/w525-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE101.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 101</figcaption></figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/w405-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE102.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 102</figcaption></figure>
+
 2. Сделайте сильный глубокий вдох, без насилия, резких толчков или жесткости, сохраняя состояние туловища под контролем,
+
 3. Задержите дыхание на десять- пятнадцать секунд (фот. 101 и 103).
+
 4. Через несколько секунд тело ослабляет свое бодрое состояние. Чтобы его поддерживать, поднимите боковые области ребер. Теперь сократите нижнюю часть туловища от лобковой кости, промежности и ануса и поднимите ее вверх по направлению к грудной клетке вместе с позвоночником. Это мула бандха (фот. 69).
+
 5. Это поднятие туловища порождает напряжение в голове. Опустите голову от основания затылка. Это улучшит джаландхара бандху и уменьшит напряжение в голове
+
 6 Ощутите, как дыхание проникает в самые отдаленные поры кожи туловища, пробуждая всюду осознанность.
+
 7. Удерживайте глаза, уши и язык пассивными, а мозг - спокойным
+
 8. Если продолжительность задержки слишком велика, в горле ощущается напряжение, также напрягаются лицевые мышцы и виски. Это означает, что вы утрачиваете устойчивое положение. В таком случае, восполните энергию тела, как описано выше в пункте 4.
+
 9. Если в голове и туловище все еще ощущается напряжение, а к лицу приливает кровь, это означает, что вы утратили правильную бандху или превысили свои возможности. Это может привести к нарушениям в нервной системе. В таком случае, не продолжайте задержку.
+
 10. Сделайте обычный или глубокий выдох, не теряя прочности положения тела, диафрагмы и легких.
+
 11 Это -один цикл задержки. Выполняйте десять—двенадцать таких циклов, сохраняя такой же уровень осознавания, как и в первом. Так как возможности задержки дыхания индивидуальны, невозможно точно указать продолжительность задержки. Рекомендуется делать внутреннюю задержку после интервала в три или четыре дыхания.
+
 12. По завершении практики вдохните и лягте в шавасану (фот 182).
+
 На этой ступени акцент делается на задержке, л не на вдохе и выдохе.
-###
+
+### 
+
 Результаты
+
 Эта ступень хороша для людей, страдающих от вялости, тошнота и физической утомляемости. Она поддерживает тепло тела, удаляет флегму, порождает веселость и уверенность. Она ведет к улучшению концентрации. Неправильная практика вызывает раздражение, волнение, вспыльчивость и истощение.
-##
+
+## 
+
 Ступень ХМ
+
 Это — внутренняя задержка (бахья кумбхака) для продвинутых учеников.
-###
+
+### 
+
 Техника
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL9mlqrbXRkNhhCc6vjytCmtgDfcJmysnTNu6HUUeeHKbsuuLHZEvkohQwE0YFlLPT0SGoxfBf0RIxjZt38P_PaeuSUufwkyF9UHAB3yErTgKx9pK77c1uQiBq3bhX6MapdqjNV4zsRDc/w432-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE103.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>фото 103</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL9mlqrbXRkNhhCc6vjytCmtgDfcJmysnTNu6HUUeeHKbsuuLHZEvkohQwE0YFlLPT0SGoxfBf0RIxjZt38P_PaeuSUufwkyF9UHAB3yErTgKx9pK77c1uQiBq3bhX6MapdqjNV4zsRDc/w432-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE103.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>фото 103</figcaption></figure>
+
 1, Сядьте в любую удобную позу, следуя технике, данной в пунктах 1 — 7 ступени V, и выдохните (фот. 96).
+
 2. Сделайте нормальный вдох, затем — устойчивый и сильный выдох. Опустите легкие, насколько это возможно, без напряжения, резких движений или жесткости.
+
 3. Завершив выдох, не вдыхайте, а сделайте паузу и подтяните всю абдоминальную область назад к позвоночнику и вверх, к грудной клетке. Это уддийяна бандха (фот. 104).
+
 4. Задержите дыхание на десять-пятнадцать секунд (фот. 101 и 103).
+
 5. Задержитесь в этом положении насколько возможно долго. Когда почувствуете напряжение, расслабьте брюшную полость, приведите ее в нормальное положение и вдохните.
+
 6. Это — один цикл задержки. Повторите его восемь-десять раз, затем вдохните и лягте в щавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+
 7. По мере совершенствования увеличивайте продолжительность задержки после выдоха. Продолжительность задержки индивидуальна. Увеличивайте ее в соответствии со своими возможностями.
-<figure>
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/w478-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE104.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
-<figcaption>Фото 104</figcaption>
-</figure>
+
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/w478-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE104.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 104</figcaption></figure>
+
  8. Никогда не выдыхайте во время уддийяна бандхи, так как это может вызвать удушье и перенапряжение сердца.
+
 9. В начале рекомендуется выполнять внешнюю задержку после интервала в три-четыре глубоких дыхания.
-###
+
+### 
+
 Результаты
+
 Эта ступень очищает абдоминальные органы к предупреждает их выпадение.
-##
+
+## 
+
 Ступень XIII
+
 Эта продвинутая ступень совмещает внутреннюю (антара) и внешнюю (бахья) задержки (кумбхаки) с двумя или тремя вдохами и выдохами.
-###
+
+### 
+
 Техника
+
 1. Сперва выдохните (фот. 96).
+
 2. Глубоко вдохните. После полного вдоха задержите дыхание (аятара кумбхака) на десять секунд (фот. 101),
+
 3. Глубоко выдохните. После полного выдоха задержите дыхание (бахья кумбхака), одновременно выполнив уддийяна банд-ху, на пять секунд (фот. 104), и затем глубоко вдохните. Это завершает один цикл.
+
 4. Выдохните и сделайте два или три глубоких вдоха и выдоха. Затем повторите циклы кумбхаки, выполняя после каждого два-три глубоких вдоха и выдоха.
+
 5 Выполните пять-шесть циклов, завершив все вдохом. Затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). 
-##
+
+## 
+
 Таблица Удджайи Пранаямы
+
  Ступень  Пурака Антара  Кумбхака  Речака  Бахья Кумбхака 
+
  Н Г  Без МБ МБ Н Г БезУБ  УБ
+
  лежа I ° °
+
  П ° °
+
  III ° °
+
  IV ° °
+
  Сидя V ° °
+
  VI ° °
+
  VII ° °
+
  VIII ° °
+
  IX ° HC ° X °      ° СВД   XI  СГ ° 10—15 с   Н или Г    XII °      СГ  СВД  XIII  СГ  10-15 с   НилиГ  СВД
+
 Г — глубокий
+
 МБ — мула бандха
+
 Н — нормальный
+
 НС — несколько секунд
+
 С — сильный
+
 СВД —сколько возможно долго
+
 УБ — уддайана бандха
+
 [Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
