@@ -47,6 +47,6 @@ url: "/derevo-jogi-joga-vriksha-plod/"
 
 Так дерево йоги - йога-врикша - ведет нас посредством практики слой за слоем через наше существо до тех пор, пока мы не испытаем амброзию плода йоги - прозрение души.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cvetok.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-zdorove-kak-celostnost.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cvetok.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-zdorove-kak-celostnost.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCXVMEo515F0P3Zdc7zHMxvEqNWxaQV2K14UM0A3TF523SpXNJ9Iup2VvqnZTLIodngOyvnOa6C3qvpPMsQ18FH9GzmxfhEo93I_ieOj5NrTFUiubwP9SvMs8nNRKIm54jvQ52sdW1FuM/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258020.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiCXVMEo515F0P3Zdc7zHMxvEqNWxaQV2K14UM0A3TF523SpXNJ9Iup2VvqnZTLIodngOyvnOa6C3qvpPMsQ18FH9GzmxfhEo93I_ieOj5NrTFUiubwP9SvMs8nNRKIm54jvQ52sdW1FuM/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258020.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

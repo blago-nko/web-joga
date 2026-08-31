@@ -17,7 +17,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 - [Ваше собственное Путешествие](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-vashe-sobstvennoe-puteshestvie.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwQNZJppOylPA9u8W-w8vAeKRHQ1n9FH_lAtccMZsFDQt1d7yQR-5H4J2GIQnw-_IKpspQ4wC2-E8vZou9cfCGm41QI1igTeeaBRhLdTrNBOByMfu2PkH03B5TbU0OtzApIoG7VEooJTA/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258040.jpg" alt="Б. К. С. Айенгар" title="Б. К. С. Айенгар">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwQNZJppOylPA9u8W-w8vAeKRHQ1n9FH_lAtccMZsFDQt1d7yQR-5H4J2GIQnw-_IKpspQ4wC2-E8vZou9cfCGm41QI1igTeeaBRhLdTrNBOByMfu2PkH03B5TbU0OtzApIoG7VEooJTA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258040.jpg" alt="Б. К. С. Айенгар" title="Б. К. С. Айенгар">
 
 ### 
 
@@ -71,7 +71,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 - [Похоть](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html)
 
-- [Гордыня и вожделение ](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie.html)
+- [Гордыня и вожделение ](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie.html)
 
 - [Гнев](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gnev.html)
 

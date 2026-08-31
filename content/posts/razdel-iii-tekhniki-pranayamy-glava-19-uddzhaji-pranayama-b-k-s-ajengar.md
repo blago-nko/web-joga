@@ -11,21 +11,21 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Все стадии этой пранаямы, за исключением содержащих задержки (кумбхаки), можно выполнять в любое время. Однако если в сердце ощущается тяжесть, переполненность или боль, или же напряжена диафрагма, или если вы взволнованны и нарушен пульс, то, перед тем как лечь, положите на пол два деревянных бруска (каждый около одного квадратного фута и 1 1/2 дюйма толщиной), один поверх другого. Расположите спину на брусках так, чтобы ягодицы были ниже планок, а руки вытянуты вниз (фот. 79 - 81). Также можно воспользоваться валиком, как показано на фот. 82. Для удобства и расслабления положите на ноги груз, как на фот. 83. Вместо брусков можно использовать две подушки (фот. 84). Если из-за физического недостатка или болезни нельзя выпрямить ноги, согните колени и расположите нижние части ног на валике или стуле (фот. 85 и 86).
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZzCJ3PPAI-t6v_-z2qdAtsxHoYKmYnJTsjZtz1CLW7x-5NommxUwyFEn6IL4bi_m90P6kSzjapvFjqvpzXRxoHfgXjXjYl57g-AHw4YVoML9abl4V6PEgm5sy9H0YBxnZEDCnBuBW7g/w640-h269-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE79.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 79</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZzCJ3PPAI-t6v_-z2qdAtsxHoYKmYnJTsjZtz1CLW7x-5NommxUwyFEn6IL4bi_m90P6kSzjapvFjqvpzXRxoHfgXjXjYl57g-AHw4YVoML9abl4V6PEgm5sy9H0YBxnZEDCnBuBW7g/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE79.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 79</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwtLo6aoZgN-kVsJW3exh_l2M1VGBTUGm2d7cpcHSAKluzgAy43CwxmEgAujDBSLT08HJLdBkBurTkt44Di5p-329-6-sPcSy1WFLaQY-BdasGqkSILQX0TQYWAbsNuRTVpCE0mSV0qcw/w640-h337-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE80.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 80</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwtLo6aoZgN-kVsJW3exh_l2M1VGBTUGm2d7cpcHSAKluzgAy43CwxmEgAujDBSLT08HJLdBkBurTkt44Di5p-329-6-sPcSy1WFLaQY-BdasGqkSILQX0TQYWAbsNuRTVpCE0mSV0qcw/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE80.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 80</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFtc9H07eh1ZlyrrM1INUlg652beZSsszPUO3rwhlJO0RFj7tEIjEfO1c-GI7jnTyL2gUv9zvc4UG8tD6Kwqgm3wCmidvrTtfX7w18LbuNNdA869zvWFpr-I-PAlW2iOxJWH3I0jOgcyA/w640-h148-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE81.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 81</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFtc9H07eh1ZlyrrM1INUlg652beZSsszPUO3rwhlJO0RFj7tEIjEfO1c-GI7jnTyL2gUv9zvc4UG8tD6Kwqgm3wCmidvrTtfX7w18LbuNNdA869zvWFpr-I-PAlW2iOxJWH3I0jOgcyA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE81.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 81</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj273o9Pc9EhgNheYbqfw5IlwRixcL1lUMG4PzWLTm9yZfbzPGySqNIy5-_GTp_DDHmstKzfmAaRHe0KTDqgmhz4YJOeO0p1tVKpgHitB_fdYXQ1z-Mwa4GgycSYzujzs9l0bBBr1cSwlo/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE82.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 82</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj273o9Pc9EhgNheYbqfw5IlwRixcL1lUMG4PzWLTm9yZfbzPGySqNIy5-_GTp_DDHmstKzfmAaRHe0KTDqgmhz4YJOeO0p1tVKpgHitB_fdYXQ1z-Mwa4GgycSYzujzs9l0bBBr1cSwlo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE82.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 82</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicQkL4y2XQkjC0nplCNdFrc-pevikg5EU2LdXiXiDvW0R99OqKyK5PFybi3YVeCogh1HgBh-EzsyfGUt5deYNd4VBUPaGani53iA82Gp5qCFyvNfHFdRnpmflnrrv4aRHQaK-bqw6hDnc/w640-h218-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE83.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 83</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicQkL4y2XQkjC0nplCNdFrc-pevikg5EU2LdXiXiDvW0R99OqKyK5PFybi3YVeCogh1HgBh-EzsyfGUt5deYNd4VBUPaGani53iA82Gp5qCFyvNfHFdRnpmflnrrv4aRHQaK-bqw6hDnc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE83.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 83</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnqB2HG6CEI2LW-4kNPUue8YZW-LKM9056mzlqQoXhD7Vpw_RG0WCfdUR6r-XdThpBDwqhRh6PyPLP0pAWXY_mpbvvVJUszQWCU8R8FyzLtPXT6nnJe5E9HBqpW3KfzrHsCQ16TDZ8fOs/w640-h311-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE84.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 84</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnqB2HG6CEI2LW-4kNPUue8YZW-LKM9056mzlqQoXhD7Vpw_RG0WCfdUR6r-XdThpBDwqhRh6PyPLP0pAWXY_mpbvvVJUszQWCU8R8FyzLtPXT6nnJe5E9HBqpW3KfzrHsCQ16TDZ8fOs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE84.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 84</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvo-BI8MiPgauXto4Y4gaLSsr0UufQgB_hEArCN5G42UzPthwuoKXJaPcNoun9tDn3_7-b9h_GJaX404rre0Y2na5VWpqdx7uJ99YdEZqeJ4r-gIvGiLprGB4Dh511880BEyijmJzxM5I/w640-h210-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE85.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 85</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvo-BI8MiPgauXto4Y4gaLSsr0UufQgB_hEArCN5G42UzPthwuoKXJaPcNoun9tDn3_7-b9h_GJaX404rre0Y2na5VWpqdx7uJ99YdEZqeJ4r-gIvGiLprGB4Dh511880BEyijmJzxM5I/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE85.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 85</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/w640-h389-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE86.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 86</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE86.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 86</figcaption></figure>
 
 Когда спина расположена таким образом, мышцы тазового пояса стимулируют вдох. Это облегчает любое напряжение и смягчает диафрагму. Легкие и дыхательные мышцы функционируют плавно, и дыхание становится глубоким. Практика этой пранаямы приносит удивительное облегчение больным с увеличенным сердечным желудочком и врожденными пороками сердца. Более того, она успокаивает страх, мучающий сердечных больных, опасающихся, что малейшее движение ухудшит их состояние.
 
@@ -43,11 +43,11 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 5. Хотя шавасана и рекомендуется в конце каждой пранаямы, если вы хотите делать более одной ступени или несколько различных пранаям последовательно, то шавасану следует выполнять только в конце занятия.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTgfM-5Rw8E0HTSjq46cLM84JydXxm0V4DQZ95qp7SCBL90pc4eJe7nBWUtuvQJ_Nb4R2s2uK5P7XGkVZ_cGpQNMqUrllcwgMutFD6jtEeLdRJ0aXhxM2h8yHkVAVn6HLjdX76ndpSpf8/w570-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE87.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 87</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTgfM-5Rw8E0HTSjq46cLM84JydXxm0V4DQZ95qp7SCBL90pc4eJe7nBWUtuvQJ_Nb4R2s2uK5P7XGkVZ_cGpQNMqUrllcwgMutFD6jtEeLdRJ0aXhxM2h8yHkVAVn6HLjdX76ndpSpf8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE87.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 87</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSZJGxwibgx-PRxeQHRytAQW9SvcMPJOq6ZniGd81GGh_6YE4S4zK9zFGX70o77na9LzamkeyWvd85SNq3-304LG6hfjTGffYYpInFzBB_oh6Sl4n52rzzfSPqjQDAg3topB73lYnmOcQ/w595-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE89.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 88</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSZJGxwibgx-PRxeQHRytAQW9SvcMPJOq6ZniGd81GGh_6YE4S4zK9zFGX70o77na9LzamkeyWvd85SNq3-304LG6hfjTGffYYpInFzBB_oh6Sl4n52rzzfSPqjQDAg3topB73lYnmOcQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE89.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 88</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/w590-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE88.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 89</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE88.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 89</figcaption></figure>
 
 ## 
 
@@ -59,7 +59,7 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqA3AlIrUDfDrVq_l927199MO0U1P6C0QZLMGYldn1lX04mjojX8VFp4mNHS9Cs7kBPI3Ach-TFLozmnKV2Oz3aKpMcmyIfm3zgOpcZ15nO6XKBOWzmyzQSAuE26RkKJd69OJPVSQPq_U/w640-h274-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE90.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 90</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqA3AlIrUDfDrVq_l927199MO0U1P6C0QZLMGYldn1lX04mjojX8VFp4mNHS9Cs7kBPI3Ach-TFLozmnKV2Oz3aKpMcmyIfm3zgOpcZ15nO6XKBOWzmyzQSAuE26RkKJd69OJPVSQPq_U/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE90.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 90</figcaption></figure>
 
 1. Расстелите одеяло, сложив его в длину, на полу. Поверх него, точно кромка к кромке, под голову положите другое одеяло, сложенное втрое или вчетверо, таким образом, чтобы оно находилось под туловищем и затылком (фот, 89).
 
@@ -69,15 +69,15 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. По мере того как вы вдыхаете, удостоверьтесь, что оба легких наполняются равномерно. Чувствуйте, как грудная клетка расширяется в стороны и поднимается. Синхронизируйте эти два движения.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrowudtPkkO8fLhQsjk_LxLDvoa0su_AYvSfHdREu6io2_rMMVBNU1dap74thyu6kdoOh9zjJvXgfYF0EpL1Vj0YHvPU3licw6GM_SqAnn9Tgr0A2igv_fzvpP3qEWCwVq32b9VLw4vJE/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 91</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrowudtPkkO8fLhQsjk_LxLDvoa0su_AYvSfHdREu6io2_rMMVBNU1dap74thyu6kdoOh9zjJvXgfYF0EpL1Vj0YHvPU3licw6GM_SqAnn9Tgr0A2igv_fzvpP3qEWCwVq32b9VLw4vJE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 91</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcR7TJ8F04A1pePqzHeuincBTHpB4t6bKXxPnSLTJD8Tzq2fmf0GE-Io3Vol-N0nj8vBILsIfp63itU8tVsY26oWU4gR6PG9NpHOm8LpJpbbzqcCBPMeTzhaaL6dqBVlA5mlqWGucIl0c/w640-h198-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 92</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcR7TJ8F04A1pePqzHeuincBTHpB4t6bKXxPnSLTJD8Tzq2fmf0GE-Io3Vol-N0nj8vBILsIfp63itU8tVsY26oWU4gR6PG9NpHOm8LpJpbbzqcCBPMeTzhaaL6dqBVlA5mlqWGucIl0c/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE91.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 92</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT1WzAeW6Gv8XEjJ46FOO__KYGxXbEiyUojInFk8OyA9hLtBPhUk4XF6lgrncSlAu4aANXGFEKB-QkRKzKlhm55OJGlfwUGYctbgMs3daecPUe-LtdAd52ngzhWXtHicIlcHOXqqo6luM/w640-h221-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE92.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 93</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT1WzAeW6Gv8XEjJ46FOO__KYGxXbEiyUojInFk8OyA9hLtBPhUk4XF6lgrncSlAu4aANXGFEKB-QkRKzKlhm55OJGlfwUGYctbgMs3daecPUe-LtdAd52ngzhWXtHicIlcHOXqqo6luM/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE92.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 93</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNNEPCf_TqOzBeeTT6uhOaHCjjPTZqoNpRpXVWeIoc7lhAZ3wbaiFIpnRGPQUNAwjcCUw463n6KIJzuvA8xJAhHn-waDmVk92IiB3bvtx8WuAnb5L1In1Qel9CvXlQ7Xn9987XKRpA-9M/w640-h174-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE94.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 94</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNNEPCf_TqOzBeeTT6uhOaHCjjPTZqoNpRpXVWeIoc7lhAZ3wbaiFIpnRGPQUNAwjcCUw463n6KIJzuvA8xJAhHn-waDmVk92IiB3bvtx8WuAnb5L1In1Qel9CvXlQ7Xn9987XKRpA-9M/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE94.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 94</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/w640-h183-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE95.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 95</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE95.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 95</figcaption></figure>
 
 5. Выдыхайте спокойно, опорожняя легкие равномерно с обеих сторон. Если легкие опорожняются неравномерно, откорректируйте этот процесс.
 
@@ -215,13 +215,13 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBSjV0wOe2jqh9WpFlC-HPsPPnXcEoaBIhwoMhQDiUGcTrdTdxxGssyOeKmFYfRZB98Tk-XcZ6W1m4DAGNDbXNOF_fslmXNZpBHjMMyhh4b-r6K12_ak76I4_KXz6IjJm8GDDHYC0V44k/w520-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE96.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 96</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBSjV0wOe2jqh9WpFlC-HPsPPnXcEoaBIhwoMhQDiUGcTrdTdxxGssyOeKmFYfRZB98Tk-XcZ6W1m4DAGNDbXNOF_fslmXNZpBHjMMyhh4b-r6K12_ak76I4_KXz6IjJm8GDDHYC0V44k/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE96.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 96</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjq7s0_v5Vm9fe6ITdWZk55ldk7jsGP0e_erT57zD4XZTgaubRcrE-hy2ZVUwG9O6luMq4vnRRMXHdNxPtwY8HadAw-O0zPc0aevjVvtMRbI4kKzGWqIheE-WnUc5HMMfv8wNAFApSF34g/w400-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE97.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 97</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjq7s0_v5Vm9fe6ITdWZk55ldk7jsGP0e_erT57zD4XZTgaubRcrE-hy2ZVUwG9O6luMq4vnRRMXHdNxPtwY8HadAw-O0zPc0aevjVvtMRbI4kKzGWqIheE-WnUc5HMMfv8wNAFApSF34g/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE97.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 97</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0HlgNG47oPmSAgMkEjGABq2wURGJB6FSzY4gnhHSH70SogYksPgiTnV7SbxjvJPo5uZjJz7ScaEBU3AO316uXFul9FUgvXA54scjgIWZk5KyoIOMzrCtRKmlPehw56LHoNzqAnFSOKUI/w528-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE98.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 98</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0HlgNG47oPmSAgMkEjGABq2wURGJB6FSzY4gnhHSH70SogYksPgiTnV7SbxjvJPo5uZjJz7ScaEBU3AO316uXFul9FUgvXA54scjgIWZk5KyoIOMzrCtRKmlPehw56LHoNzqAnFSOKUI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE98.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 98</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/w398-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE99.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 99</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE99.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 99</figcaption></figure>
 
 1. Сядьте в любую удобную позу, следуя техникам, данным в пунктах 1 7 ступени V. Выдохните из легких весь находящийся там воздух (фот. 96).
 
@@ -385,11 +385,11 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1-7 ступени V, и выдохните из легких весь воздух (фот. 96).
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA-5cCTnGfD15rPYmAfkSxP1qpfKfhXgrlPzvpMAoqwZgMt8KLOe_JO9fuINIi9rvx_geysrTePXAkpQ25kaFAt0CdBYn8nPLQ0Cd-z75Oh01mz7Rz6QcMMtzRW_7ulQMSVBQia9_S2sU/w448-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE100.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 100</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA-5cCTnGfD15rPYmAfkSxP1qpfKfhXgrlPzvpMAoqwZgMt8KLOe_JO9fuINIi9rvx_geysrTePXAkpQ25kaFAt0CdBYn8nPLQ0Cd-z75Oh01mz7Rz6QcMMtzRW_7ulQMSVBQia9_S2sU/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE100.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 100</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilQBodhNAttHcENCyWOeP5iMAnZtWWBJOcIyUMTq5X_HIOiw_NggeKh4jAQmzr7c_vHPSBs_dl86fnvSu-9Ij-DTR9qoDKNeDRTAg-onDweH52UWqx8l4wbFk3fbaPcEdaAfRLm9guF9Y/w525-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE101.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 101</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilQBodhNAttHcENCyWOeP5iMAnZtWWBJOcIyUMTq5X_HIOiw_NggeKh4jAQmzr7c_vHPSBs_dl86fnvSu-9Ij-DTR9qoDKNeDRTAg-onDweH52UWqx8l4wbFk3fbaPcEdaAfRLm9guF9Y/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE101.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 101</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/w405-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE102.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 102</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE102.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 102</figcaption></figure>
 
 2. Сделайте сильный глубокий вдох, без насилия, резких толчков или жесткости, сохраняя состояние туловища под контролем,
 
@@ -431,7 +431,7 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL9mlqrbXRkNhhCc6vjytCmtgDfcJmysnTNu6HUUeeHKbsuuLHZEvkohQwE0YFlLPT0SGoxfBf0RIxjZt38P_PaeuSUufwkyF9UHAB3yErTgKx9pK77c1uQiBq3bhX6MapdqjNV4zsRDc/w432-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE103.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>фото 103</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL9mlqrbXRkNhhCc6vjytCmtgDfcJmysnTNu6HUUeeHKbsuuLHZEvkohQwE0YFlLPT0SGoxfBf0RIxjZt38P_PaeuSUufwkyF9UHAB3yErTgKx9pK77c1uQiBq3bhX6MapdqjNV4zsRDc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE103.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>фото 103</figcaption></figure>
 
 1, Сядьте в любую удобную позу, следуя технике, данной в пунктах 1 — 7 ступени V, и выдохните (фот. 96).
 
@@ -447,9 +447,9 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 7. По мере совершенствования увеличивайте продолжительность задержки после выдоха. Продолжительность задержки индивидуальна. Увеличивайте ее в соответствии со своими возможностями.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/w478-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE104.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 104</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE104.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 104</figcaption></figure>
 
- 8. Никогда не выдыхайте во время уддийяна бандхи, так как это может вызвать удушье и перенапряжение сердца.
+ 8. Никогда не выдыхайте во время уддийяна бандхи, так как это может вызвать удушье и перенапряжение сердца.
 
 9. В начале рекомендуется выполнять внешнюю задержку после интервала в три-четыре глубоких дыхания.
 
@@ -477,33 +477,33 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. Выдохните и сделайте два или три глубоких вдоха и выдоха. Затем повторите циклы кумбхаки, выполняя после каждого два-три глубоких вдоха и выдоха.
 
-5 Выполните пять-шесть циклов, завершив все вдохом. Затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). 
+5 Выполните пять-шесть циклов, завершив все вдохом. Затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). 
 
 ## 
 
 Таблица Удджайи Пранаямы
 
- Ступень  Пурака Антара  Кумбхака  Речака  Бахья Кумбхака 
+ Ступень  Пурака Антара  Кумбхака  Речака  Бахья Кумбхака 
 
- Н Г  Без МБ МБ Н Г БезУБ  УБ
+ Н Г  Без МБ МБ Н Г БезУБ  УБ
 
- лежа I ° °
+ лежа I ° °
 
- П ° °
+ П ° °
 
- III ° °
+ III ° °
 
- IV ° °
+ IV ° °
 
- Сидя V ° °
+ Сидя V ° °
 
- VI ° °
+ VI ° °
 
- VII ° °
+ VII ° °
 
- VIII ° °
+ VIII ° °
 
- IX ° HC ° X °      ° СВД   XI  СГ ° 10—15 с   Н или Г    XII °      СГ  СВД  XIII  СГ  10-15 с   НилиГ  СВД
+ IX ° HC ° X °      ° СВД   XI  СГ ° 10—15 с   Н или Г    XII °      СГ  СВД  XIII  СГ  10-15 с   НилиГ  СВД
 
 Г — глубокий
 
@@ -519,4 +519,4 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 УБ — уддайана бандха
 
-[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)

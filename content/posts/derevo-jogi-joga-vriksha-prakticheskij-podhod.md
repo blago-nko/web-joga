@@ -31,6 +31,6 @@ url: "/derevo-jogi-joga-vriksha-prakticheskij-podhod/"
 
 Я изложил здесь лишь общие идеи; я не могу давать детальные рекомендации для конкретных случаев. Нужно наблюдать и учиться под руководством опытного учителя, а затем работать с максимальной осторожностью.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-iskusstvo-ostorozhnosti.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-iskusstvo-ostorozhnosti.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6CiNus6R9zsiXIuQRgWXZ18o6IHDSqZbFQz-0IxGrodWHGZC-00bdcYKFxnILJ4ADXvtTZirO4o3MdGe3Oqmi8VOrrKDYxiC2GPSxj8v-w3L_f_HxEJrWdgvbKTCnL7TFioVE3E-UiUQ/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258024.jpg" alt="derevo-jogi-joga-vriksha-prakticheskij-podhod" title="derevo-jogi-joga-vriksha-prakticheskij-podhod">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6CiNus6R9zsiXIuQRgWXZ18o6IHDSqZbFQz-0IxGrodWHGZC-00bdcYKFxnILJ4ADXvtTZirO4o3MdGe3Oqmi8VOrrKDYxiC2GPSxj8v-w3L_f_HxEJrWdgvbKTCnL7TFioVE3E-UiUQ/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258024.jpg" alt="derevo-jogi-joga-vriksha-prakticheskij-podhod" title="derevo-jogi-joga-vriksha-prakticheskij-podhod">

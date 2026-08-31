@@ -21,6 +21,6 @@ url: "/derevo-jogi-joga-vriksha-lichnost-i-obshchestvo/"
 
 Когда ваши тело, ум и душа наполнены здоровьем и гармонией, вы приносите гармонию и здоровье каждому, кто находится рядом с вами, и всему миру в целом - не отрекаясь от мира, но ощущая себя здоровым живым органом тела человечества.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-derevo-jogi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vostok-i-zapad.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-derevo-jogi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vostok-i-zapad.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEix6pRa06rOudh2JjalGgL0eiDaEdU5ZDRPLKfvoG87Xw8q1KB5OWXoRqEvG9wRnAaBLxF_2KaQ4dqZ27mHstMfdwVjDZYEC_nkd9moFq-nRB374EmU5IOzdunYPX4IEK7iBFLYtGnF4Qk/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25802.jpg" alt="Б.К.С. Айенгар" title="Б.К.С. Айенгар">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEix6pRa06rOudh2JjalGgL0eiDaEdU5ZDRPLKfvoG87Xw8q1KB5OWXoRqEvG9wRnAaBLxF_2KaQ4dqZ27mHstMfdwVjDZYEC_nkd9moFq-nRB374EmU5IOzdunYPX4IEK7iBFLYtGnF4Qk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25802.jpg" alt="Б.К.С. Айенгар" title="Б.К.С. Айенгар">

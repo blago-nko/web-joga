@@ -11,7 +11,7 @@ url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"
 
 В тем кака пранаяме вдох и выдох не являются непрерывными процессами, а прерываются несколькими паузами. Например, если один полный вдох занимает пятнадцать секунд, то в тем кака пранаяме он прерывается каждые две-три секунды, и его продолжительность увеличивается таким образом до двадцати пяти-тридцати секунд. Аналогично, продолжительность прерывистого выдоха возрастает до двадцати пяти — тридцати секунд. Эту пранаяму можно сравнить с восхождением и спуском по высокой лестнице, с остановкой на каждой ступеньке. Обратите внимание, что во время пауз в прерывистых вдохе и выдохе не происходит невольных вдохов и выдохов. Описанная ниже техника состоит из девяти ступеней.
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7wgrWGDPNytSi9upDKPtbJYZDbhnn9M8MNtbwQCl1EWmXzV_rv_Wusd4GnKLYcnoeO0Jz7Slqw6JRPdApI38uQiyFmSoBUpczDJtg2kC9fLQ-7VgaS3KI3G0a5JQQpSX1wI3mEfzX3Fg/w640-h490-rw/11111.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7wgrWGDPNytSi9upDKPtbJYZDbhnn9M8MNtbwQCl1EWmXzV_rv_Wusd4GnKLYcnoeO0Jz7Slqw6JRPdApI38uQiyFmSoBUpczDJtg2kC9fLQ-7VgaS3KI3G0a5JQQpSX1wI3mEfzX3Fg/s1600/11111.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## Ступень I
 
@@ -105,7 +105,7 @@ url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"
 
 ### Техника
 
-1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1 — 7 ступени V удджайи  Выдохните без напряжения ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1 — 7 ступени V удджайи  Выдохните без напряжения ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 2. Теперь начинайте прерывистый вдох, следуя технике пункта 2 ступени IV (см. выше).
 
@@ -165,7 +165,7 @@ url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"
 
 1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1 — 7 удджайи, ступень V. Выдохните весь воздух из легких, не напрягаясь ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Начинайте прерывистый вдох, описанный в пункте 2 ступени IV.
+2.  Начинайте прерывистый вдох, описанный в пункте 2 ступени IV.
 
 3. Затем задержите дыхание, одновременно выполнив мула бандху в течение десяти-пятнадцати секунд или сколько возможно ([фот 101](https://joga.blagorussia.ru/2020/05/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar.html)).
 
@@ -181,25 +181,25 @@ url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"
 
 ## Таблица Вилома Пранаямы
 
- Ступень  Пурака  Антара Кумбхака   Резака   Бадгёа Кумбхака    БезП Я Без МБ МБ БезЯ  Я  БезУБ  УБ 
+ Ступень  Пурака  Антара Кумбхака   Резака   Бадгёа Кумбхака    БезП Я Без МБ МБ БезЯ  Я  БезУБ  УБ 
 
- Лежа I
+ Лежа I
 
-  °
+  °
 
-   ° 
+   ° 
 
-    П
+    П
 
- °     °    III  °    °    Сидя IV  °   °
+ °     °    III  °    °    Сидя IV  °   °
 
-   V °     °    VI  °    °    VII
+   V °     °    VI  °    °    VII
 
-  ° 10—15 с  °    VIII
+  ° 10—15 с  °    VIII
 
- °     °  5— 6с 
+ °     °  5— 6с 
 
- 5—6 с  IX  °   10с  °  
+ 5—6 с  IX  °   10с  °  
 
 МБ — мула бандха
 
@@ -207,4 +207,4 @@ url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"
 
 УБ — уддийана бандха
 
-[Предыдущая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar.html)

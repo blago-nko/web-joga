@@ -13,13 +13,13 @@ url: "/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar/"
 
 ### Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLvNTJd0qMszYFc13-pfM1YdGIxdGtZJOKrXo30CMgGy4ADwKDuW82UTsbtk-hu886kZDju5LVtiFZKf2PyReAdB7aymfbnRaovrJcR2VnPQOykFKPfF92NxhFHzHfilpxMgnUQjF-AaA/w640-h293-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE106.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 105</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLvNTJd0qMszYFc13-pfM1YdGIxdGtZJOKrXo30CMgGy4ADwKDuW82UTsbtk-hu886kZDju5LVtiFZKf2PyReAdB7aymfbnRaovrJcR2VnPQOykFKPfF92NxhFHzHfilpxMgnUQjF-AaA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE106.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 105</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSg1jvNaPArUwyTV4cBqgiOX0fhFuA91JHdNQ-cIAV7BuhBnUvHN9so1jOT_r3eyEse-KavWBZI6edPtzCSv6O9MYcOZMXzZztvC04B7sF8upQMi61cwTgxVLefNwc5u9aWV3BUnKNnFo/w640-h485-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE105.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 106</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSg1jvNaPArUwyTV4cBqgiOX0fhFuA91JHdNQ-cIAV7BuhBnUvHN9so1jOT_r3eyEse-KavWBZI6edPtzCSv6O9MYcOZMXzZztvC04B7sF8upQMi61cwTgxVLefNwc5u9aWV3BUnKNnFo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE105.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 106</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihyphenhyphen9SrQqsH_dp_yjwj20hwVIs5YyBn7yH-2OHsxZaDTyDjqZYLO6ptnr-AcmZcRq8Dn98FwhqL0Xfswyfj2CFbbwf_Od8-6s3UYI0I-ACXhukHZgYVG3e0sWpKoUb_ILQ-iPzr3xWLNuk/w543-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE108.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 107</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihyphenhyphen9SrQqsH_dp_yjwj20hwVIs5YyBn7yH-2OHsxZaDTyDjqZYLO6ptnr-AcmZcRq8Dn98FwhqL0Xfswyfj2CFbbwf_Od8-6s3UYI0I-ACXhukHZgYVG3e0sWpKoUb_ILQ-iPzr3xWLNuk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE108.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 107</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiztKhwm01GZt2NUQXMbm-hDZImzfibn8uPBWBzL8w80ANwLJ3h9_-nh8MaNW6NdyjkJnnefAESM7zh5ClSvvS8qaD6eQ4b5xkao1OKpU3lqvdaIlJ8sO39KJeMyHSvSLGBFKbRylzCvCQ/w482-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE107.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 108</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiztKhwm01GZt2NUQXMbm-hDZImzfibn8uPBWBzL8w80ANwLJ3h9_-nh8MaNW6NdyjkJnnefAESM7zh5ClSvvS8qaD6eQ4b5xkao1OKpU3lqvdaIlJ8sO39KJeMyHSvSLGBFKbRylzCvCQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE107.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 108</figcaption></figure>
 
 В этой пранаяме глубокий вдох выполняется, как в удджайи Пранаяме, а глубокий выдох — с жужжащим или гудящим звуком. Однако в этой пранаяме не рекомендуется задерживать дыхание (кумбхака) Бхрамари также можно делать с санмукхи мудрой (sanmukhi mudra) без джаландхара бандхи, так как здесь не выполняются кумбхаки.
 
@@ -53,18 +53,18 @@ url: "/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar/"
 
 ## Таблица Бхрамари Пранаямы
 
- Ступень  Дурака  Речака Санмукхи мудра 
+ Ступень  Дурака  Речака Санмукхи мудра 
 
-  н Г ГЖЗ
+  н Г ГЖЗ
 
-  Лежа IA
+  Лежа IA
 
- °  °  B °  ° ° ПА  ° °  В  ° ° ° Сидя III A  °  °  В °  ° ° IV А  ° °  В  ° ° °
+ °  °  B °  ° ° ПА  ° °  В  ° ° ° Сидя III A  °  °  В °  ° ° IV А  ° °  В  ° ° °
 
- Г — глубокое
+ Г — глубокое
 
 ЖЗ — жужжащий звук
 
 Н — термальное
 
-[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)

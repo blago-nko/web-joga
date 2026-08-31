@@ -7,7 +7,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhadnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pratyahara.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgDiOzZxGob86qAa13QJ5unNp7koRZnIozHmJn9tgdb_oQpWgzqreKCWBFYsOxEKeJ5VeTptY6XgRSsrf6jmYgA-gzndNUzSXK2TafNkqfU8GDsqSv88NIBti8U9TqV2gOAFEi-FZM-hcA/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258069.jpg" alt="Айенгар" title="Айенгар">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgDiOzZxGob86qAa13QJ5unNp7koRZnIozHmJn9tgdb_oQpWgzqreKCWBFYsOxEKeJ5VeTptY6XgRSsrf6jmYgA-gzndNUzSXK2TafNkqfU8GDsqSv88NIBti8U9TqV2gOAFEi-FZM-hcA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258069.jpg" alt="Айенгар" title="Айенгар">
 
 ## 
 
@@ -15,13 +15,13 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Первый совет Патанджали относительно нервных недугов я переведу очень вольно. «Если вы счастливы, довольны и неэгоистичны в своем поведении с другими, препятствия исчезнут. Если вы скупы на эмоции и мысленно всех осуждаете, они загромоздят ваш путь». Если быть точнее, он имел в виду следующее. Чтобы достичь спокойного сознания, мы должны прежде всего быть готовы изменить свое поведение и отношение к окружающему нас внешнему миру для своего же блага. Особое обращение с людьми, которое больше известно как здоровые и целебные качества сознания, развивают ум и облегчают путь йога. Это:
 
-1) майтри  – развитие дружелюбности к счастливым;
+1) майтри  – развитие дружелюбности к счастливым;
 
-2) каруна  – развитие сострадания к несчастным;
+2) каруна  – развитие сострадания к несчастным;
 
-3) мудита  – развитие восхищения добродетельными;
+3) мудита  – развитие восхищения добродетельными;
 
-4) упекша  – развитие равнодушия к порочным.
+4) упекша  – развитие равнодушия к порочным.
 
 Эти четыре качества на первый взгляд кажутся простыми до банальности. На самом же деле они тонки и глубоки. Вспомните, я начал обсуждение нервных недугов с того, что назвал их естественно существующими пороками, которые рассеивают нашу энергию. Другими словами, энергию нужно заманить внутрь и приумножить через техники генерирования, потом сохранить, распределить и вновь направить внутрь. Но в реальной жизни мы испускаем ее как сквозь сито. Это происходит каждый раз, как вы завидуете чьему-то счастью или удаче. «На его месте должен был быть я», – сокрушаетесь вы. «Ну почему он, а не я выиграл в лотерею». Обида, ревность и зависть обедняют человека не только морально, но и энергетически. Они буквально его иссушают. Порадоваться за благосостояние других – значит приобщиться к богатству мира. Зачерпывая своим кубком из бесконечности, вы обогатитесь, но от него не убудет. Когда вы любуетесь закатом, вы наполняетесь красотой, а он остается неизменным. Но, возмущаясь радостями других, вы теряете то немногое, что у вас уже было.
 
@@ -47,4 +47,4 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Как только мы начинаем отказываться от своего эго и привязанностей к своим чувствам, приносящих нам столько беспокойства, применяя целебные качества для успокоения своих сердец и умов, мы одновременно начинаем понимать, что злоключения этой жизни больше нас не беспокоят. Это называется пратьяхара , важная составляющая чувства внутреннего умиротворения.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhadnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pratyahara.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhadnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pratyahara.html)

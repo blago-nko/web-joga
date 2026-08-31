@@ -43,6 +43,6 @@ url: "/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost/"
 
 Разумеется, вы тратите энергию и на анализ. Позже это пройдет. Вот почему усилия снижаются. Будет определено нужное направление, а когда вы идете в нужном направлении, приходит мудрость. Когда придет мудрость действия, вы перестанете воспринимать усилия как усилия - они будут ощущаться как радость. Став совершенными, ваш опыт и исполнение достигнут равновесия и согласия.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vera.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vera.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg58e38PqepbgkZ_E-nTCD4MUmEkExousZog52L-EJHXED03-YzhJHN_x3alWHiv3MBTi_UPM7rJ2OrsyGWc9mY_WA92c4rvwvIt9nzczsBipy0wfmtxbNs7sZQul_PnEUOqm9HAKsellU/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258011.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg58e38PqepbgkZ_E-nTCD4MUmEkExousZog52L-EJHXED03-YzhJHN_x3alWHiv3MBTi_UPM7rJ2OrsyGWc9mY_WA92c4rvwvIt9nzczsBipy0wfmtxbNs7sZQul_PnEUOqm9HAKsellU/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258011.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

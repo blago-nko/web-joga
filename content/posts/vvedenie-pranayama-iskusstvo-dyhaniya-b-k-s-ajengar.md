@@ -7,7 +7,7 @@ url: "/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIunZFsS7NXnrwc54tgndOI7QaaeNyvwf565irBPLjsgMFvkEyj8RvVN1bctFQPb43wlRjRYaHwW7DXkNWhaFw_CAgL0sxqnkb9oqoGZSxQDl9UEF6GSo3ZxTspCAE1eCIUO9pg-DETVk/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580116.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIunZFsS7NXnrwc54tgndOI7QaaeNyvwf565irBPLjsgMFvkEyj8RvVN1bctFQPb43wlRjRYaHwW7DXkNWhaFw_CAgL0sxqnkb9oqoGZSxQDl9UEF6GSo3ZxTspCAE1eCIUO9pg-DETVk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580116.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
 
 ## 
 
@@ -31,4 +31,4 @@ url: "/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Иегуди Минухин
 
-[Предыдущая](https://joga.blagorussia.ru/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

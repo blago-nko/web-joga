@@ -5,7 +5,7 @@ aliases:
   - "/2019/11/avtory-knig-i-statej-po-joge.html"
 url: "/avtory-knig-i-statej-po-joge/"
 ---
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf3iVPaTmQFxmU90EoWD2NA0cnYFx86rnYT772qNCeWkSJ0WW9ZwIxCiFNmyjcfgpyBYUoX3aJTZTmv7xJ9G1rcnRiRe1bhawAAmuOMUC_B-cpDtI2ai7OAG5J-zH0jXyObpEq-XVFlY0/s640-rw/%25D0%259D%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F+%25D0%25B9%25D0%25BE%25D0%25B3%25D0%25B0.jpg" alt="Йога" title="Йога">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf3iVPaTmQFxmU90EoWD2NA0cnYFx86rnYT772qNCeWkSJ0WW9ZwIxCiFNmyjcfgpyBYUoX3aJTZTmv7xJ9G1rcnRiRe1bhawAAmuOMUC_B-cpDtI2ai7OAG5J-zH0jXyObpEq-XVFlY0/s1600/%25D0%259D%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F+%25D0%25B9%25D0%25BE%25D0%25B3%25D0%25B0.jpg" alt="Йога" title="Йога">
 
 ## 
 

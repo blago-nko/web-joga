@@ -13,7 +13,7 @@ url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s
 
 1. Вдох (пурака) - это поглощение космической энергии индивидуумом для его роста и прогресса. Это путь действия (правритти марга). Это - Бесконечное, сливающееся с конечным. Оно впитывается с дыханием жизни так же осторожно и мягко, как аромат цветка вдыхается и распространяется по всему телу.
 
-2 При выполнении асан ум и дыхание садхаки подобны уму и дыханию  восторженного  ребенка,  всегда готового изобретать, творить и показывать свое умение, в то время как в пранаяме дыхание подобно грудному ребенку, требующему особого внимания и заботы матери. Как мать любит своего ребенка и посвящает свою жизнь его благополучию, так и сознание должно лелеять дыхание.
+2 При выполнении асан ум и дыхание садхаки подобны уму и дыханию  восторженного  ребенка,  всегда готового изобретать, творить и показывать свое умение, в то время как в пранаяме дыхание подобно грудному ребенку, требующему особого внимания и заботы матери. Как мать любит своего ребенка и посвящает свою жизнь его благополучию, так и сознание должно лелеять дыхание.
 
 3. Чтобы познать это искусство, важно знать его методологию, знать, что верно, а что неверно, что тонко, а что грубо Затем только садхака может испытать сущность пранаямы. Полезно будет заметить, что взаимоотношения между сознанием (читта) и дыханием (прана) должны быть подобны взаимоотношениям между матерью и ребенком. Но перед тем как это может произойти, легкие, диафрагма и межреберные мышцы должны быть натренированы и дисциплинированы асанами, таким образом, чтобы дыхание было ритмичным.
 
@@ -33,7 +33,7 @@ url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s
 
 10 Выдох это исходящий поток индивидуальной энергии (дживатма) для соединения ее с космической энергией. Он успокаивает ум и делает молчаливым мозг. Это отказ садхаки от своего эго и погружение в Самость.
 
-11.  Выдох, это процесс, посредством которого энергия тела постепенно соединяется с энергией ума, сливается с душой садхаки и растворяется в космической энергии Это - путь возвращения с периферии тела к источнику сознания, известный как путь само отречения (нивритти марга).
+11.  Выдох, это процесс, посредством которого энергия тела постепенно соединяется с энергией ума, сливается с душой садхаки и растворяется в космической энергии Это - путь возвращения с периферии тела к источнику сознания, известный как путь само отречения (нивритти марга).
 
 12. С осознанием держите грудную клетку высоко и проводите исходящее дыхание равномерно и плавно.
 
@@ -57,11 +57,11 @@ url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s
 
 е) Не напрягайте и не дергайте свод диафрагмы, а сохраняйте его расслабленным. Начинайте вдох от основания диафрагмы. Ключевая точка для начала глубокого вдоха от уровня пупка, под плавающими ребрами I каждой стороны (фот 70).
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihIp4kl_hieTOkC7pxfxfVaMd8Y9JukwN0S_j4KNu8ABEvIf5dGBc8BB41bSUujMrYD7-RSCs_GzFLcyr_lBjtFJMTsxofhlCVeaqpU0nmk2J8AJlET5cfBtpo1yAy_T-ZRaMxQmPIx3s/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE70.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 70</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihIp4kl_hieTOkC7pxfxfVaMd8Y9JukwN0S_j4KNu8ABEvIf5dGBc8BB41bSUujMrYD7-RSCs_GzFLcyr_lBjtFJMTsxofhlCVeaqpU0nmk2J8AJlET5cfBtpo1yAy_T-ZRaMxQmPIx3s/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE70.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 70</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWTMckjwSzUardX9PW5zBBAhElm3kdOA_-9c_9X_PO-eSo2gp5DY1yzVu4BUvS05RKyaw0liWhWiApCw9Uk0K64wcbEnQlM4dVkH0IP68u37I-gM7pdPC7J5oil6dLbWg6oCTVpbwiRBo/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE71.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 71</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWTMckjwSzUardX9PW5zBBAhElm3kdOA_-9c_9X_PO-eSo2gp5DY1yzVu4BUvS05RKyaw0liWhWiApCw9Uk0K64wcbEnQlM4dVkH0IP68u37I-gM7pdPC7J5oil6dLbWg6oCTVpbwiRBo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE71.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 71</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLW26erV-bt7QWmV7wohYLi1IDaR83ZMSq_CuWwdh23trcTGOOcnW5K4XPlA92ABO_SUk1l_dWu6d2oVqiHQTQv3yWh89GupXaZvS2qJTy3wK5z7h9nIjjaljPdJYRl7N31N4PYtmvuEQ/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE72.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 72</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLW26erV-bt7QWmV7wohYLi1IDaR83ZMSq_CuWwdh23trcTGOOcnW5K4XPlA92ABO_SUk1l_dWu6d2oVqiHQTQv3yWh89GupXaZvS2qJTy3wK5z7h9nIjjaljPdJYRl7N31N4PYtmvuEQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE72.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 72</figcaption></figure>
 
 ж) Сохраняйте легкие пассивными и несопротивляющимися во время вдоха для того, чтобы получить и впитать всю поступающую энергию. Вдыхая, наполняйте легкие совершенно, с полным вниманием. Синхронизируйте движения дыхания с внутренним расширением легких.
 
@@ -81,13 +81,13 @@ url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s
 
 п) Если во время вдоха плечи поднимаются, верхняя часть легких не будет полностью расширяться и задняя часть шеи будет испытывать напряжение. Наблюдайте эту тенденцию восходящего движения и немедленно опускайте плечи ([фот. 52](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)). Чтобы сохранить их опущенными, а грудную клетку поднятой, используйте шест или отягощения, как показано на фот 71 74.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw52RChyphenhyphen8TV5sUvWMGM2kXUxfUgPgSBJV2OhEN_qX0oc1THqIIP6FMSzxN8jpMklF2i5H3ByWDebkhFBdO22DdkcmDwBfByCq0jrrcZ6RRbrlBQ5YEwtLHb26067njj78ZTk0QrdSh4yc/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE73.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 73</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw52RChyphenhyphen8TV5sUvWMGM2kXUxfUgPgSBJV2OhEN_qX0oc1THqIIP6FMSzxN8jpMklF2i5H3ByWDebkhFBdO22DdkcmDwBfByCq0jrrcZ6RRbrlBQ5YEwtLHb26067njj78ZTk0QrdSh4yc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE73.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 73</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidupdj-a9RB8H5mT1xhFDniCM3D1LNpzCthpckv_APJpz3rvQ5sWLGaFi_cilC4hmmd7s0Jdt20LPh6XAembXHklqBTpyIl3MsrrMa9YPU8Za0FC_EGpcDuOHQpM0FIpPozit1MZW-fPs/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE74.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 74</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidupdj-a9RB8H5mT1xhFDniCM3D1LNpzCthpckv_APJpz3rvQ5sWLGaFi_cilC4hmmd7s0Jdt20LPh6XAembXHklqBTpyIl3MsrrMa9YPU8Za0FC_EGpcDuOHQpM0FIpPozit1MZW-fPs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE74.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 74</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivJw6XXO_4agE-mUqkhKh9F2GLmugrdK1DYIwCaBAO11U1eJZHqouME8cNCoyOx-KA6pBJ7FWamHzsqdCbka_T5fNgqZ6wZVymkiEQNUSG8vLPTgOvxo8xLWSS_cRDcQ5rD-F2DtW-xe8/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE75.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 75</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivJw6XXO_4agE-mUqkhKh9F2GLmugrdK1DYIwCaBAO11U1eJZHqouME8cNCoyOx-KA6pBJ7FWamHzsqdCbka_T5fNgqZ6wZVymkiEQNUSG8vLPTgOvxo8xLWSS_cRDcQ5rD-F2DtW-xe8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE75.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 75</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6KT-dUZRebe0_YH3e6eBGq8L8YVH9YQHdoGmEfSL_voRGSoA8KfkPME3LteHTDXKHl2XTyEzfoxAuFpBMLLJJqXiT1ObczA77YCpTWsCXqmwHTSrytADE3SaKsJBz2FECCTyjP8yzF2I/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE76.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 76</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6KT-dUZRebe0_YH3e6eBGq8L8YVH9YQHdoGmEfSL_voRGSoA8KfkPME3LteHTDXKHl2XTyEzfoxAuFpBMLLJJqXiT1ObczA77YCpTWsCXqmwHTSrytADE3SaKsJBz2FECCTyjP8yzF2I/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE76.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 76</figcaption></figure>
 
 р) Расслабьте горло. Расположите язык на нижнем небе свободно, не касаясь зубов.
 
@@ -105,4 +105,4 @@ url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s
 
 б) При вдохе тело действует как инструмент для получения энергии в форме воздуха. При выдохе оно становится динамическим, действуя как инструмент для медленного высвобождения воздуха. Сохраняйте сжатие межреберных мышц и плавающих ребер на протяжении всего акта выдоха. Без этого устойчивый и плавный выдох невозможен.
 
-[Предыдущая](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)

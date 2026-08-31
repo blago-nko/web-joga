@@ -7,7 +7,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-stress.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheyZeseF4iLcLKfZbkM2-VI4qhnM6VLAYzBFqVSR2WZE_-e5vuXCsLHV8pF1r5MzU5rvWNPHZTeJT9J7LL9KFhPuzmxnrsLiBp5prglfPvViXG0HjHYjz8UaoRUaBPFAQnJzQXMPfv1Mc/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258064.jpg" alt="Айенгар " title="Айенгар ">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheyZeseF4iLcLKfZbkM2-VI4qhnM6VLAYzBFqVSR2WZE_-e5vuXCsLHV8pF1r5MzU5rvWNPHZTeJT9J7LL9KFhPuzmxnrsLiBp5prglfPvViXG0HjHYjz8UaoRUaBPFAQnJzQXMPfv1Mc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258064.jpg" alt="Айенгар " title="Айенгар ">
 
 ## 
 
@@ -33,4 +33,4 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Обычно жизнь кажется нам полной давления, боли, напряжения, стресса и усилий. Но понимание шести нервных недугов дает нам шанс преобразовать их и возродиться самим.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-stress.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-stress.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html)

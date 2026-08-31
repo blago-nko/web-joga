@@ -5,9 +5,9 @@ aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-vera-ustremlenie-samootrechenie.html"
 url: "/osnovy-jogi-shri-aurobindo-vera-ustremlenie-samootrechenie/"
 ---
-[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html) >>> [Следующая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html)
+[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html) >>> [Следующая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpEonrlY4iZFcEgWI6_Ts_Qr4b4lX7rrgGQ0pNIHz0ULph1UyrtEQ3kjIQw4poPkudP0D0w2VdSSFiPJPoqlu8hmJ6p2aWfmvblo_jQ9mpwDSP30Pct9BPSB32d6AH9Hvm_D3zjRQtbT4/s640-rw/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE2.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpEonrlY4iZFcEgWI6_Ts_Qr4b4lX7rrgGQ0pNIHz0ULph1UyrtEQ3kjIQw4poPkudP0D0w2VdSSFiPJPoqlu8hmJ6p2aWfmvblo_jQ9mpwDSP30Pct9BPSB32d6AH9Hvm_D3zjRQtbT4/s1600/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE2.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
 
 ## 
 
@@ -17,7 +17,7 @@ II ВЕРА – УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ
 
 Вы должны войти внутрь себя и принять полное посвящение в духовную жизнь. Если вы хотите добиться успеха в Йоге, то должны оставить все ментальные предпочтения, перестать упорствовать в достижении каких бы то ни было целей и интересов витального порядка, перестать эгоистически цепляться за свою семью, друзей и страну. Что бы ни исходило от вас, будет ли это энергия или действие, все должно быть продиктовано постигнутой вами однажды Истиной, а не более низкими ментальными или витальными мотивами, – продиктовано Божественной Волей, а не личным выбором или предпочтениями эго.
 
-* * * 
+* * * 
 
 В сущности ментальные теории не важны, ибо ум создает или принимает те теории, которые обосновывают обращение, изменение общей направленности существа. Самое это обращение, самое ваше внутреннее призвание – вот что важно.
 
@@ -183,4 +183,4 @@ II ВЕРА – УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ
 
 Таковы основные условия подготовки к супраментальному изменению; все они нелегки, но прежде чем о нашей натуре можно будет сказать, что она готова, все они должны быть выполнены. При наличии верной внутренней позиции (душевной, безэгоистичной, открытой лишь Божественной Силе) данный процесс может быть значительно ускорен. Это единственное, что требуется для содействия общей перемене и может ей помочь, – принятие и сохранение верной установки на содействие переменам в себе.
 
-[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html) >>> [Следующая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html)
+[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html) >>> [Следующая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html)

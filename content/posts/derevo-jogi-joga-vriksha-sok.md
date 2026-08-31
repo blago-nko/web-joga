@@ -17,6 +17,6 @@ url: "/derevo-jogi-joga-vriksha-sok/"
 
 Состояние наполненности мыслями требует предельного внимания. Состояние отсутствия мыслей также требует предельного внимания. Поэтому на самом деле нет ни состояния отсутствия мыслей, ни состояния наполненности мыслями. Вы не становитесь пустым. Вы остаетесь наполненным и полностью осознающим. Это дхарана, которая, со временем, приводит к дхьяне и самадхи; вот как нужно выполнять асаны.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-kora.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cvetok.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-kora.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cvetok.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgW6NcolpY1CC9250YhbNUzCf1hrf2jXHap8S97N-DVSkgGnQ7xdXqJATvNQKIW3UzNHzVa0KAFfdmengixGtaF4lGgFNnkac7GDevJR4__miLeJxYLo3voeaKEOgjqXNozRCMoLuVE-wY/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258018.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgW6NcolpY1CC9250YhbNUzCf1hrf2jXHap8S97N-DVSkgGnQ7xdXqJATvNQKIW3UzNHzVa0KAFfdmengixGtaF4lGgFNnkac7GDevJR4__miLeJxYLo3voeaKEOgjqXNozRCMoLuVE-wY/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258018.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

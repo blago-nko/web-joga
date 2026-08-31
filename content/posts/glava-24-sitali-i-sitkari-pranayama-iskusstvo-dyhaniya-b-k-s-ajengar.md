@@ -21,9 +21,9 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgStIqWDJvlDAl6_VAMqFaeMZy3uhgJUL2udezT6oS29AN0WKLQ0-uN8ZuSJ2IvEIpUPbKvxezGNzfuMZoTn-arQ9_9KOQcYLqD-KBnPwG4SD2zlFtlcnV0RD9Rs8DIrkLvkHkx5kRi_gs/w429-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE144.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 143</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgStIqWDJvlDAl6_VAMqFaeMZy3uhgJUL2udezT6oS29AN0WKLQ0-uN8ZuSJ2IvEIpUPbKvxezGNzfuMZoTn-arQ9_9KOQcYLqD-KBnPwG4SD2zlFtlcnV0RD9Rs8DIrkLvkHkx5kRi_gs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE144.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 143</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhHGC3PacBhK4ZnvnNiwxZxNb14XE-xn8wl1JkKJ08uqEA2OmioN8QVJ-qS0_wVpZ-NAq1JQh0YN2ztYPiO6kCUUIiI6TppgJ88UZotkCeH1Pkgl7PAeR-ggIfj9ncx7-y_5_0ejYXqNqQ/w463-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE143.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 144</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhHGC3PacBhK4ZnvnNiwxZxNb14XE-xn8wl1JkKJ08uqEA2OmioN8QVJ-qS0_wVpZ-NAq1JQh0YN2ztYPiO6kCUUIiI6TppgJ88UZotkCeH1Pkgl7PAeR-ggIfj9ncx7-y_5_0ejYXqNqQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE143.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 144</figcaption></figure>
 
 1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1 — 7 удджайи, ступень V. Выдохните весь находящийся в легких воздух ([фот 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
@@ -53,13 +53,13 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 3 Поднимите правую руку к ноздрям, как описано в пунктах 12 -22 [гл 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
-4.  Частично закройте обе ноздри кончиками пальцев, равномерно надавливая на обе стороны носа так, чтобы они были параллельны носовой перегородке ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
+4.  Частично закройте обе ноздри кончиками пальцев, равномерно надавливая на обе стороны носа так, чтобы они были параллельны носовой перегородке ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
-5.  Выдохните медленно, равномерно и полностью, без напряжения. Расположите пальцы на ноздрях чутко и осторожно, чтобы контролировать силу и поток выдыхаемого воздуха равномерно через обе ноздри.
+5.  Выдохните медленно, равномерно и полностью, без напряжения. Расположите пальцы на ноздрях чутко и осторожно, чтобы контролировать силу и поток выдыхаемого воздуха равномерно через обе ноздри.
 
-6.  Когда вы ощутите, что легкие совершенно пусты, опустите руку и положите ее на колено.
+6.  Когда вы ощутите, что легкие совершенно пусты, опустите руку и положите ее на колено.
 
-7.  Этим завершается один цикл. Повторяйте его в течение пятидесяти минут. В конце последнего цикла вдохните нормально через обе ноздри, затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html))
+7.  Этим завершается один цикл. Повторяйте его в течение пятидесяти минут. В конце последнего цикла вдохните нормально через обе ноздри, затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html))
 
 ## Ступень III
 
@@ -71,7 +71,7 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 2. Теперь вдохните, следуя технике пунктов 2 — 6 ступени I ([фот 144](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)), и завершите вдох внутренней задержкой с мула бандхой ([фот. 101](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-3.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
+3.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
 4. Полностью закройте левую ноздрю, частично правую ([фот 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)) и выдохните медленно, равномерно и до предела через нее, не напрягаясь.
 
@@ -95,23 +95,23 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Эти две пранаямы создаюг радостное настроение. Они охлаждают дыхательную систему и успокаивают глаза и уши. Они благотворно действуют в случаях небольшого жара и разлития желчи. Они активизируют печень и селезенку, улучшают пищеварение и облегчают жажду. Они полезны при дурном запахе изо рта. Эти пранаямы садхака может выполнять, даже если ноздри блокированы.
 
-## Таблица Ситали и Ситкари Пранаямы 
+## Таблица Ситали и Ситкари Пранаямы 
 
 #### Сигали
 
- Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯС Без МБ МБ Г I ° ° Оба варианта
+ Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯС Без МБ МБ Г I ° ° Оба варианта
 
-(МБ 5—10 сек) Оба варианта
+(МБ 5—10 сек) Оба варианта
 
-(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
+(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
 
 #### Ситкари
 
- Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯР Без МБ МБ Г I ° ° Оба варианта
+ Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯР Без МБ МБ Г I ° ° Оба варианта
 
-(МБ 5—10 сек) Оба варианта
+(МБ 5—10 сек) Оба варианта
 
-(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
+(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
 
 Г — глубокий
 
@@ -127,4 +127,4 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 ЯС — язык свернут
 
-[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

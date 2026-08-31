@@ -9,7 +9,7 @@ url: "/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-
 
 ## 
 
-Раздел II. Искусство Пранаямы 
+Раздел II. Искусство Пранаямы 
 
 ### 
 
@@ -99,7 +99,7 @@ url: "/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-
 
 28. Располагайте позвоночник от основания, позвонок за позвонком, как будто вы строите стену из кирпичей. Сохраняйте правую и левую стороны позвоночного столба параллельными, двигая их независимо друг от друга и ритмично в соответствии с центральным позвоночным столбом. В пранаяме передняя часть позвоночника более подвижна, чем задняя.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2VTvqZ28WHyHKFiZKit3KiFhPtUct6OZCbJqrLqe6sNOhyOkzxpMei4sBZ3YZ6cm7Mxnfv9_6GC8d5PlUL0Y5YxIBXOpu2Fh46-V64LDrcTZLFGS6-QDeWYa8ikrjwbH6HYbQj1Qe8fE/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE3.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>ФотоЗ</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2VTvqZ28WHyHKFiZKit3KiFhPtUct6OZCbJqrLqe6sNOhyOkzxpMei4sBZ3YZ6cm7Mxnfv9_6GC8d5PlUL0Y5YxIBXOpu2Fh46-V64LDrcTZLFGS6-QDeWYa8ikrjwbH6HYbQj1Qe8fE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE3.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>ФотоЗ</figcaption></figure>
 
 #### 
 
@@ -139,27 +139,27 @@ url: "/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-
 
 37. Сохраняйте внутренний слух алертным, но пассивным. Уши - это окна ума. Настройте их на вибрации вдоха и выдоха и на беззвучное состояние задержки.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSjatiJh1y4kLQfHh4fDZy1oMtXeOt1ffVh1NdzaqQhV1nYWlxMLuGrmISifv1euQBfchl3fz7bNTNyCmiWZXO-qnLA8FLOPAmID1fIPGMbflzFnISDWEngds4JqO5CK1wc2UTOzp6U2U/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE4.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 4</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhSjatiJh1y4kLQfHh4fDZy1oMtXeOt1ffVh1NdzaqQhV1nYWlxMLuGrmISifv1euQBfchl3fz7bNTNyCmiWZXO-qnLA8FLOPAmID1fIPGMbflzFnISDWEngds4JqO5CK1wc2UTOzp6U2U/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE4.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 4</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHKQeV-94DazTgoP8Igfup8F4WbkgG_0adzlaSs2zGBr03LgimFEoUNYL4YtmnLnb3qchYhz6FiqeSN84ZC5dWGW1tIWgLYTRzv2K0dC-AZRVFxO_nD1eyfpC4SCWb8sJ8TosJpkqmEfQ/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE5.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 5</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHKQeV-94DazTgoP8Igfup8F4WbkgG_0adzlaSs2zGBr03LgimFEoUNYL4YtmnLnb3qchYhz6FiqeSN84ZC5dWGW1tIWgLYTRzv2K0dC-AZRVFxO_nD1eyfpC4SCWb8sJ8TosJpkqmEfQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE5.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 5</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEji6aLsBNdQeA6aFxy39LiNqIdBqDoPH5t8zU2A7SZa4cVu8hJnY_aVlLd6ke9yP3koZhqPxynftnKt8AHEjc98VCmr_flcgfpKFzmaezJYV0LNBSMzKL5GdZhLmxIQHPbfv_8UqEL-R5c/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE6.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 6</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEji6aLsBNdQeA6aFxy39LiNqIdBqDoPH5t8zU2A7SZa4cVu8hJnY_aVlLd6ke9yP3koZhqPxynftnKt8AHEjc98VCmr_flcgfpKFzmaezJYV0LNBSMzKL5GdZhLmxIQHPbfv_8UqEL-R5c/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE6.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 6</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGbaLg-t9NhqQqNGtVeKnfkX3kBlUPJ_reBdmb-vImNS9Ayss2LGNKB6V91fAaXox59oNSWO-ZO_xCjEZvClUEu6Threuu9YAiYczS4qONqOLnoglLjDiXL2g5-QYe76yReasDi_Bvj-0/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE7.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 7</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjGbaLg-t9NhqQqNGtVeKnfkX3kBlUPJ_reBdmb-vImNS9Ayss2LGNKB6V91fAaXox59oNSWO-ZO_xCjEZvClUEu6Threuu9YAiYczS4qONqOLnoglLjDiXL2g5-QYe76yReasDi_Bvj-0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE7.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 7</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHJMRkznQQtSifzTIcX9AYlvpcRaoDj9NTZfBQVbQiFhNLjbCzk3e5X9MA1wiXmVbdtjfkhAC2BIFm0ur6sN9UlAq4ktX-eE11az3V9ouhcJcGb3x6Rk7tTxtp6_ZjWesUxxdnX553xLk/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE8.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 8</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHJMRkznQQtSifzTIcX9AYlvpcRaoDj9NTZfBQVbQiFhNLjbCzk3e5X9MA1wiXmVbdtjfkhAC2BIFm0ur6sN9UlAq4ktX-eE11az3V9ouhcJcGb3x6Rk7tTxtp6_ZjWesUxxdnX553xLk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE8.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 8</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBcWkQjbm-m2djHFZBvuQpMhn7yOhkx5y_Gjl-GF67lKYEKWD05SZp_cc7ysYVLQrQ9EHOOAkkXV0vdxLOcZoWHrBBzyY-Z7hjRl10M0O4c6yKVgEdQZqJoWvDyIDjCq8PU5Z7n18Z_0M/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE9.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 9</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBcWkQjbm-m2djHFZBvuQpMhn7yOhkx5y_Gjl-GF67lKYEKWD05SZp_cc7ysYVLQrQ9EHOOAkkXV0vdxLOcZoWHrBBzyY-Z7hjRl10M0O4c6yKVgEdQZqJoWvDyIDjCq8PU5Z7n18Z_0M/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE9.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 9</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdxVjHl5jQ2GFQi4lOCXGrM8jo9a6wVEduzRTDFELbP4S_RV07X_4IIs57lnEeN47Wwb0FrB0JoCJDLhtonYUWH-FYkeDJw1SGjK8RmZ95WO9ABMar0Qr1bPypbM0-c3W2xzAG2KcJgE0/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE10.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 10</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdxVjHl5jQ2GFQi4lOCXGrM8jo9a6wVEduzRTDFELbP4S_RV07X_4IIs57lnEeN47Wwb0FrB0JoCJDLhtonYUWH-FYkeDJw1SGjK8RmZ95WO9ABMar0Qr1bPypbM0-c3W2xzAG2KcJgE0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE10.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 10</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmj4VnFKaUGAOvzuiWIz8aXtq-2ikStIZbzZAALpSlluESstm7swQ51blQpZyUJRLjsLVjj9XAHI-kNJYf-OuwashwHWC3u02EboVRmkkc3JKSWPMnwaI1qtZcy0vWHeRFCeGCDp75RtY/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE11.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 11</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmj4VnFKaUGAOvzuiWIz8aXtq-2ikStIZbzZAALpSlluESstm7swQ51blQpZyUJRLjsLVjj9XAHI-kNJYf-OuwashwHWC3u02EboVRmkkc3JKSWPMnwaI1qtZcy0vWHeRFCeGCDp75RtY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE11.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 11</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXKK4vvhDLDkelu735rhX9jzo2SRFRfLbJVACl3EjpXt1B_lnbhhwXQ0KOKGCwBbjOpQTmanYFSsi6uqOitGXI4zjLvFyfd0Zgz65cnKZ0bP10yXQg-re1NxRBuQ1oziqLjOWpfb5eifQ/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE12.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 12</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXKK4vvhDLDkelu735rhX9jzo2SRFRfLbJVACl3EjpXt1B_lnbhhwXQ0KOKGCwBbjOpQTmanYFSsi6uqOitGXI4zjLvFyfd0Zgz65cnKZ0bP10yXQg-re1NxRBuQ1oziqLjOWpfb5eifQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE12.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 12</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRFT2dJyeo988Q4v8kl0jaAeJPf8e1apwEm8y-ndnrErcfcentbxgk9HlHUN1fvxtn-JFmqnH3iKVImV2BW9_DpKkZYbBDesGMU3AzpMhi4kE5prPqV-fPpcp5abmsoNwrFtqfeZhQ4Os/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE13.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 13</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRFT2dJyeo988Q4v8kl0jaAeJPf8e1apwEm8y-ndnrErcfcentbxgk9HlHUN1fvxtn-JFmqnH3iKVImV2BW9_DpKkZYbBDesGMU3AzpMhi4kE5prPqV-fPpcp5abmsoNwrFtqfeZhQ4Os/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE13.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 13</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-uFRBCCGnuplxXeJciJDL_6NzrBx1TwxORgYOhPcFZK2iY1AvFfdZaAou-lsViJeL7DrVf7-ud6Mem3w_srDcL6gK8sdy9mzGQfxt5qni_yoP1fQP4fTB42MtohpCVSqILlhkKSKQapY/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE14.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 14</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-uFRBCCGnuplxXeJciJDL_6NzrBx1TwxORgYOhPcFZK2iY1AvFfdZaAou-lsViJeL7DrVf7-ud6Mem3w_srDcL6gK8sdy9mzGQfxt5qni_yoP1fQP4fTB42MtohpCVSqILlhkKSKQapY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE14.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 14</figcaption></figure>
 
 #### 
 
@@ -179,7 +179,7 @@ url: "/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-
 
 42. Сохраняйте мозг восприимчивым и наблюдающим. Используйте его для стимулирования работы легких, в то же время не задействуя его в этой работе; в противном случае он не сможет наблюдать за процессом дыхания.
 
-43. Пранаяма тамасична, когда туловище и позвоночник вялые, и раджасична, когда в нее вовлечен  ум. Только когда туловище прямо, ум восприимчив и самость бдительна - пранаяма обретает качество сатгвы.
+43. Пранаяма тамасична, когда туловище и позвоночник вялые, и раджасична, когда в нее вовлечен  ум. Только когда туловище прямо, ум восприимчив и самость бдительна - пранаяма обретает качество сатгвы.
 
 44. Память Друг, если вы используете ее для прогресса и совершенствования в практике. Она же становится препятствием, когда вы постоянно размышляете о прошедшем опыте и вое производите его в памяти. Каждый раз обнаруживайте новый свет в своей практике.
 
@@ -229,4 +229,4 @@ url: "/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-
 
 63. Когда, вследствие практики асан и пранаям, тело разогревается, приостановите занятия на день. Вотрите масло в голову, колени, подошвы и тело. Спустя некоторое время примите горячую ванну и примите шавасану примерно в течение пятнадцати минут. Тело станет прохладным и пригодным для практики на следующий день.
 
-[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)

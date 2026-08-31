@@ -7,7 +7,7 @@ url: "/osnovy-jogi-shri-aurobindo-fizicheskoe-soznanie-podsoznatelnoe-son-i-snov
 ---
 [Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDxSNC7UaW30LOqxKaJrL31du6DemNqqYju6g2UPBAdgekcb048gGcs9O9QzNh0VTfcFrNSMwcg14h7kdCCr2XweK6Ea4rJiEMzXhvCdHbOkGzoLxWkzgfNhNu6rx-_a_3mAHDhZ2GZO4/s640-rw/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE5.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDxSNC7UaW30LOqxKaJrL31du6DemNqqYju6g2UPBAdgekcb048gGcs9O9QzNh0VTfcFrNSMwcg14h7kdCCr2XweK6Ea4rJiEMzXhvCdHbOkGzoLxWkzgfNhNu6rx-_a_3mAHDhZ2GZO4/s1600/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE5.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
 
 ## 
 
@@ -187,4 +187,4 @@ V ФИЗИЧЕСКОЕ СОЗНАНИЕ – ПОДСОЗНАТЕЛЬНОЕ – �
 
 В этом различие между Супраментальной Природой и йогической Силой, которая действует на ментальном и более низких планах. То, что в сознании ума и тела приобретается и удерживается Силой Йоги, супраментальному присуще внутренне и существует не благодаря достижению, а по природе – оно самосуще и абсолютно.
 
-[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html)
+[Предыдущая страница](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html)

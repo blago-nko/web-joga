@@ -23,6 +23,6 @@ url: "/derevo-jogi-joga-vriksha-stvol/"
 
 Таким образом, смысл выполнения асан заключается в том, чтобы поддерживать кожу, клетки, нервы, артерии и вены, дыхательную и кровеносную системы, системы пищеварения и выделения, ум, рассудок и сознание в чистоте и ясности. Этот процесс включает в себя все принципы ямы и ниямы, которые являются корнями и стволом дерева йоги.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-korni.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vetvi.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-korni.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vetvi.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxlVzFECDg8S8TUz_YRIDDAqxJKGPPAUYtLtWy7mfh0nuuWSmqS6DKzxJgQlBj2OHXaLwQXEKzziI_aVOj61qz5bPYQtNAjxrPbouE1SSd4Z0JvzGQL7QCNwPBwRgX-acT6UR6zjh3P1Y/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258014.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxlVzFECDg8S8TUz_YRIDDAqxJKGPPAUYtLtWy7mfh0nuuWSmqS6DKzxJgQlBj2OHXaLwQXEKzziI_aVOj61qz5bPYQtNAjxrPbouE1SSd4Z0JvzGQL7QCNwPBwRgX-acT6UR6zjh3P1Y/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258014.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

@@ -15,6 +15,6 @@ url: "/derevo-jogi-joga-vriksha-smert/"
 
 Я рассказываю вам о том, что говорит о смерти и перерождении моя религия. Ваша религия может говорить о них что-то еще. Моя религия утверждает, что перерождение возможно. Мы не должны смеяться над верованиями друг друга. Живите в настоящем и старательно познавайте самого себя. Страх смерти не может быть преодолен обычными людьми, а только йогами, но не простыми йогами, как вы или я! Нам еще предстоит долгий путь в нашей практике йоги. Мы только лишь коснулись самой поверхности этого предмета.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-starost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vera.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-starost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vera.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJU_N93zYjCy2HgcfPJtPQcUm_f58MDesncj2Mxxcs6mUrhLO4OjaP7UD3_Gwwlh0waDG3PRjkdNS9XFh1DZ3pDHnd4IA80jj32Eufk02Lf1SDWeWrILDA2lyIgwCAm9_qCF-SipSAjDw/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25809.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJU_N93zYjCy2HgcfPJtPQcUm_f58MDesncj2Mxxcs6mUrhLO4OjaP7UD3_Gwwlh0waDG3PRjkdNS9XFh1DZ3pDHnd4IA80jj32Eufk02Lf1SDWeWrILDA2lyIgwCAm9_qCF-SipSAjDw/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25809.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">

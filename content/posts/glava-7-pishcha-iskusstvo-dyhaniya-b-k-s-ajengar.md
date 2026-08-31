@@ -7,7 +7,7 @@ url: "/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/02/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZMF7p2O5l3mjBuEdPZY4ubm8VjNC6ghY9XwbM7ASPg9GemJuUYN46Tcm9N9xDVRiDn4tqR9yF3QrykRJLyYrYgzm_1vF9w8lvrP2ywzsTiitiWS9J0KQZkFmCi3lOi8BCR7IR6Pe4qkA/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580124.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZMF7p2O5l3mjBuEdPZY4ubm8VjNC6ghY9XwbM7ASPg9GemJuUYN46Tcm9N9xDVRiDn4tqR9yF3QrykRJLyYrYgzm_1vF9w8lvrP2ywzsTiitiWS9J0KQZkFmCi3lOi8BCR7IR6Pe4qkA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580124.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## 
 
@@ -41,4 +41,4 @@ url: "/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 11. Согласно Тайттирийа Упанишада, пища есть Брахман. К ней должно относиться с уважением, не злоупотреблять и не испытывать презрения.
 
-[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)

@@ -17,6 +17,6 @@ url: "/derevo-jogi-joga-vriksha-vera/"
 
 То, что вы сами существуете, есть вера. Это не убеждение, что вы живете. Само ваше существование является верой в то, что вы живете. Но зачем вы живете? Чтобы стать лучше. Иначе, вы можете умереть прямо сейчас! Попробуйте умереть! Пойдите и бросьтесь в океан! Почему вы не хотите этого делать? Потому что вам хочется жить. Зачем? Вот то, что вы должны узнать. Это вера.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-smert.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-smert.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpMUdclgtdrulcw6uz43c6ojhFYd7lIk2UBMnMiwC7BTuoqOHCZoo8y0NvdvvIEnzmy7C6Td9CDDvRSrShQgsuadlGMN7p1RmfBnOdw-LeNtXUZwIqsFQLf2WNRW5nrpOrYzI3lea_8Dc/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258010.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpMUdclgtdrulcw6uz43c6ojhFYd7lIk2UBMnMiwC7BTuoqOHCZoo8y0NvdvvIEnzmy7C6Td9CDDvRSrShQgsuadlGMN7p1RmfBnOdw-LeNtXUZwIqsFQLf2WNRW5nrpOrYzI3lea_8Dc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258010.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

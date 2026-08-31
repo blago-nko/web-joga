@@ -17,6 +17,6 @@ url: "/derevo-jogi-joga-vriksha-korni/"
 
 Таким образом принципы ямы представлены при выполнении любой асаны. Вот проявление этического закона при выполнении асаны.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-stvol.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-stvol.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdU4EccFSEeDA0UzSx_h01BQXtXqfV7YQhEmAq438OoHz8NUwh5ue98IOnGQM2UdUN-LBkGrsZDim45_jgNn7KtEcH_a7P_G4MQ9164Fi6PcqFlT6OObCR-eHrnCdkv3Ua7ia5PC2QF-8/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258013.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdU4EccFSEeDA0UzSx_h01BQXtXqfV7YQhEmAq438OoHz8NUwh5ue98IOnGQM2UdUN-LBkGrsZDim45_jgNn7KtEcH_a7P_G4MQ9164Fi6PcqFlT6OObCR-eHrnCdkv3Ua7ia5PC2QF-8/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258013.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

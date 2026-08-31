@@ -7,7 +7,7 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjv4zW8Ennw6MlQ11GO0KRcYoOEFmM8UKpfROjjhi4l7YgwI-xC6_QjtnjeqyexnyARZOglkN3x35Ak9PpbT5K6hccfMooYrgSlbHVIXVeY-rNdtYRWnLbun-WFmt1EGpFjUVSK2ddrMCk/w470-h640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580131.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjv4zW8Ennw6MlQ11GO0KRcYoOEFmM8UKpfROjjhi4l7YgwI-xC6_QjtnjeqyexnyARZOglkN3x35Ak9PpbT5K6hccfMooYrgSlbHVIXVeY-rNdtYRWnLbun-WFmt1EGpFjUVSK2ddrMCk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580131.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## Глава 23. Бхастрика и Капалабхати Пранаяма
 
@@ -23,7 +23,7 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 1. Сядьте в любую удобную позу, следуя технике, данной в пунктах 1—7 удджайи, ступень V. Выдохните весь находящийся в легких воздух ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Сделайте короткий сильный вдох и вытолкните воздух с быстрым сильным взрывным звуком. Повторите это, и вы обнаружите, что второй вдох быстрее и мощнее первого из-за усиленного предшествующего выдоха.
+2.  Сделайте короткий сильный вдох и вытолкните воздух с быстрым сильным взрывным звуком. Повторите это, и вы обнаружите, что второй вдох быстрее и мощнее первого из-за усиленного предшествующего выдоха.
 
 3. Один быстрый вдох и такой же выдох, выполненные вместе, составляют один ход бхастрики, одно продувание.
 
@@ -43,13 +43,13 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 1. Сядьте в любую удобную позу, следуя технике пунктов 1 — 7 удджайи, ступень V Выдохните из легких весь воздух ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Приведите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
+2.  Приведите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
 3. Частично закройте обе ноздри кончиками пальцев. Проследите, чтобы обе ноздри были закрыты равномерно ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
-4.  Теперь выполняйте дыхание бхастрика, следуя технике, данной в пунктах 2 — 7 ступени I.
+4.  Теперь выполняйте дыхание бхастрика, следуя технике, данной в пунктах 2 — 7 ступени I.
 
-5.  Повторите пять-шесть раз, сделайте несколько глубоких дыханий и лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+5.  Повторите пять-шесть раз, сделайте несколько глубоких дыханий и лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
 ### Ступень III
 
@@ -59,7 +59,7 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 1. Сядьте - в любую удобную позу, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните из легких весь воздух ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
+2.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
 3. С помощью контроля пальцами полностью закройте левую ноздрю и частично — правую ([фот. 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html))
 
@@ -113,11 +113,11 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 6. Эти две пранаямы не следует практиковать следующим людям:
 
-а)  женщинам, так как сильные продувания могут стать причиной выпадения абдоминальных органов и матки, а груди могут ослабеть и обвиснуть;
+а)  женщинам, так как сильные продувания могут стать причиной выпадения абдоминальных органов и матки, а груди могут ослабеть и обвиснуть;
 
-б)  людям, страдающим от недугов глаз и ушей (например, гной в ушах, отслоение сетчатки, глаукома);
+б)  людям, страдающим от недугов глаз и ушей (например, гной в ушах, отслоение сетчатки, глаукома);
 
-в)  людям с повышенным или пониженным кровяным давлением;
+в)  людям с повышенным или пониженным кровяным давлением;
 
 г) страдающим носовым кровотечением, усиленной пульсацией или болью в ушах, Если что-либо из вышеперечисленного произошло с вами, немедленно прекратите практику на несколько дней. Затем попытайтесь снова, и, если эти признаки повторятся, это означает, что такая практика вам не подходит.
 
@@ -125,43 +125,43 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 ## Таблица Бхрастрика Пранаямы
 
- Ступень I (НО) ПР Б ПР Б ПР Б ПР Б П У  Р У П У Р
+ Ступень I (НО) ПР Б ПР Б ПР Б ПР Б П У  Р У П У Р
 
-У или  ПР Б ПР Б ПР Б ПР Б П У  АК МБ Р У Ступень II (НОЧЗ) ПР Б ПР Б  ПР Б ПР Б  ПУ 
+У или  ПР Б ПР Б ПР Б ПР Б П У  АК МБ Р У Ступень II (НОЧЗ) ПР Б ПР Б  ПР Б ПР Б  ПУ 
 
- РУ 
+ РУ 
 
- ПУ 
+ ПУ 
 
- РУ 
+ РУ 
 
- или ПР Б ПР Б ПР Б ПР Б ПУ
+ или ПР Б ПР Б ПР Б ПР Б ПУ
 
- АК МБ РУ 
+ АК МБ РУ 
 
- Ступень Ш (ПНЧЗ/ ПР Б ПР Б ПР Б ПР Б ПР Б ПР БР Б  ПР Б ПР У ПРУ
+ Ступень Ш (ПНЧЗ/ ПР Б ПР Б ПР Б ПР Б ПР Б ПР БР Б  ПР Б ПР У ПРУ
 
- ПРУ
+ ПРУ
 
-  ПР
+  ПР
 
 У
 
- или
+ или
 
- ПУ
+ ПУ
 
- АК МБ РУ
+ АК МБ РУ
 
- ЛНЧЗ) ПП  ПП  ПП ПП  ЛЛ  ЛЛ  ЛЛ  ЛЛ         Ступень IV (ПНЧЗ/ ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б П 
+ ЛНЧЗ) ПП  ПП  ПП ПП  ЛЛ  ЛЛ  ЛЛ  ЛЛ         Ступень IV (ПНЧЗ/ ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б ПР Б П 
 
-У РУ
+У РУ
 
- П У РУ
+ П У РУ
 
- или П У АК МБ РУ
+ или П У АК МБ РУ
 
- ЛНЧЗ)  пд ПЛ ПЛ  ПЛ  ЛП ЛП  ЛП  ЛП         
+ ЛНЧЗ)  пд ПЛ ПЛ  ПЛ  ЛП ЛП  ЛП  ЛП         
 
 АК — Ангара кумбхака
 
@@ -183,4 +183,4 @@ url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajeng
 
 У — удджайи
 
-[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

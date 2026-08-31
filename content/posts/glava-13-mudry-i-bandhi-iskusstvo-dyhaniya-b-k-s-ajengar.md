@@ -11,7 +11,7 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Глава 13. Мудры и Бандхи
 
-1.  Чтобы следовать техникам Пранаямы, необходимо знать некоторые факты о мудрах и бандхах. Санскритское слово мудра означает печать, или замок. Оно обозначает позы, которые закрывают отверстия тела и в которых пальцы сложены определенным образом, в сочетании с особыми жестами рук.
+1.  Чтобы следовать техникам Пранаямы, необходимо знать некоторые факты о мудрах и бандхах. Санскритское слово мудра означает печать, или замок. Оно обозначает позы, которые закрывают отверстия тела и в которых пальцы сложены определенным образом, в сочетании с особыми жестами рук.
 
 2. Бандха означает зависимость, соединение вместе, сковывание или захват. Этот термин также относится к позе, в которой определенные органы или части тела сжаты, сокращены и контролируемы.
 
@@ -25,13 +25,13 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 5. Первая бандха, которой должен овладеть садхака; джа ландхара бандха, джала означает сеть, сплетение или петлю. Ею овладевают при выполнении сарвангасаны и ее цикла, где грудина давит на подбородок.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivyB-6Ccd_8gi9kH0A7jM6nive8ogJmSof6fMfXuW84YC_KWmdIzSaZs_njz2cxceAOA7VlfOyEvUFJfh9ZG1PGhCS9CAes3JjYOMOr451990hyphenhyphenbiPi2igxFoL9t-oCLG3NFscsnh8KFs/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE55-1.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 55</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivyB-6Ccd_8gi9kH0A7jM6nive8ogJmSof6fMfXuW84YC_KWmdIzSaZs_njz2cxceAOA7VlfOyEvUFJfh9ZG1PGhCS9CAes3JjYOMOr451990hyphenhyphenbiPi2igxFoL9t-oCLG3NFscsnh8KFs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE55-1.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 55</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrEuqHE6L8EmWMpVmf7WfOCZiB0kqEJKoJ_xMA2L0ShOFWoXsR3vRilDYcOgySpdqKY85LKdY2TskkyDoW3-0ZijgIeAvWTz1RQE3G2kcqXTaGfCJ9H4UV0z9FnHfn9pMwkLJGpSdmyyo/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE56.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 56</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrEuqHE6L8EmWMpVmf7WfOCZiB0kqEJKoJ_xMA2L0ShOFWoXsR3vRilDYcOgySpdqKY85LKdY2TskkyDoW3-0ZijgIeAvWTz1RQE3G2kcqXTaGfCJ9H4UV0z9FnHfn9pMwkLJGpSdmyyo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE56.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 56</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnNFXw0pHEYhoHP3jVlObmJX4fxsj3W1_CFBuf2UnHMldI3DjKpa8GEzhILUjUWBWyOdJEf-fNcnveUlQxA9jOGHMRF6El_QtNLwJ_eEqfGwuA8yAWI85Sr908L6TEzNKKAQ-cS6la130/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE57.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 57</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnNFXw0pHEYhoHP3jVlObmJX4fxsj3W1_CFBuf2UnHMldI3DjKpa8GEzhILUjUWBWyOdJEf-fNcnveUlQxA9jOGHMRF6El_QtNLwJ_eEqfGwuA8yAWI85Sr908L6TEzNKKAQ-cS6la130/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE57.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 57</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiaWO5TuDMCteQoV8CQ2VV32RH_bsHUR4i6-qu_vT2cVcgpW-2ID6sDYdjDhgojykdxg3UAsvFjR6P5m-gx_TB2z3vGXWWuU71yBR21YvVgx-Pe-43PiVcQKE6xv5MZYmU0zRL80K7j2HI/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE58.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 58</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiaWO5TuDMCteQoV8CQ2VV32RH_bsHUR4i6-qu_vT2cVcgpW-2ID6sDYdjDhgojykdxg3UAsvFjR6P5m-gx_TB2z3vGXWWuU71yBR21YvVgx-Pe-43PiVcQKE6xv5MZYmU0zRL80K7j2HI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE58.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 58</figcaption></figure>
 
 ### 
 
@@ -47,19 +47,19 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 д) Опустите голову так, что обе стороны челюстной кости ра вномерно располагаются в межключичной впадине на передней стенке грудной клетки (фот 57 и 58),
 
-е)  Не вытягивайте подбородок в одну или другую сторону (фот. 59). Также не наклоняйте шею на одну сторону (фот, 60), что может вызвать боль я напряжение, сохраняющиеся долгое время. Когда достигнута эластичность, шея все больше сгибается вниз.
+е)  Не вытягивайте подбородок в одну или другую сторону (фот. 59). Также не наклоняйте шею на одну сторону (фот, 60), что может вызвать боль я напряжение, сохраняющиеся долгое время. Когда достигнута эластичность, шея все больше сгибается вниз.
 
-ж)  Не форсируйте движение подбородка к груди, как на фот 55, а поднимайте грудную клетку к склоняющемуся подбородку, как на фот. 58.
+ж)  Не форсируйте движение подбородка к груди, как на фот 55, а поднимайте грудную клетку к склоняющемуся подбородку, как на фот. 58.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVT0RdQT9roBMQMpoiaQPUN2kWkTbLBwhbnGGxkzE8B2tv1S3CxyqEcLEBy749IUjmadNYBdVJ3TxNWDxygMdK7Gkj2a5lKUowrQY4HE8zz7dWsip6BRfl0peeCEi4f47EHkhVP_vFje8/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE59.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 59</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhVT0RdQT9roBMQMpoiaQPUN2kWkTbLBwhbnGGxkzE8B2tv1S3CxyqEcLEBy749IUjmadNYBdVJ3TxNWDxygMdK7Gkj2a5lKUowrQY4HE8zz7dWsip6BRfl0peeCEi4f47EHkhVP_vFje8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE59.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 59</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhlsdPqk_IElxA1d-Rq1kZrgpG6Kkdq8Fy86yUoRvowjTtjsKGZFbALvvDj0Z82MQRxQIWuAOkFKse_9rCAhhIxXLDi5PdIJzJe4KvlRElvy4AZATa8erCw9cEXy3VjkLa9gwxWyuDLSqg/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE60.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 60</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhlsdPqk_IElxA1d-Rq1kZrgpG6Kkdq8Fy86yUoRvowjTtjsKGZFbALvvDj0Z82MQRxQIWuAOkFKse_9rCAhhIxXLDi5PdIJzJe4KvlRElvy4AZATa8erCw9cEXy3VjkLa9gwxWyuDLSqg/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE60.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 60</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEguXJiQmM6UDhj_TudV3boBkVjjRMHaoOW3m3OMLxXRyv0-Ri59r90FqaRHdwbktVUa18SNcbKbbfqXUQ9aYwSBtoQIYTIsHOciGiHmrH3fhPODoBOsa0rS0P4INAvVtsL-q5S4TU_rI10/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE61.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 61</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEguXJiQmM6UDhj_TudV3boBkVjjRMHaoOW3m3OMLxXRyv0-Ri59r90FqaRHdwbktVUa18SNcbKbbfqXUQ9aYwSBtoQIYTIsHOciGiHmrH3fhPODoBOsa0rS0P4INAvVtsL-q5S4TU_rI10/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE61.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 61</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDu-ZjaaKDHyVH8lbb0zBcNNYYq0xri0-MPPLMCwxoPlsxJo_riCNytD7BPoc_MW6-tmTyyeG3ickd0CYqTwa4RMcQBoZFki93oWG6L4U1gZm4oN3bPzJqJbFE_h8RLLAhUmbvadCRUPA/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE62.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 62</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDu-ZjaaKDHyVH8lbb0zBcNNYYq0xri0-MPPLMCwxoPlsxJo_riCNytD7BPoc_MW6-tmTyyeG3ickd0CYqTwa4RMcQBoZFki93oWG6L4U1gZm4oN3bPzJqJbFE_h8RLLAhUmbvadCRUPA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE62.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 62</figcaption></figure>
 
-з)  Сохраняйте центр головы и подбородка на одной линии со средней линией грудины, пупка и промежности (фот. 61).
+з)  Сохраняйте центр головы и подбородка на одной линии со средней линией грудины, пупка и промежности (фот. 61).
 
 и) Располагая подбородок на грудной клетке, следите, чтобы область ребер не была впалой (фот. 62).
 
@@ -73,11 +73,11 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Солнечное сплетение расположено в центре туловища. Согласно йоге, это местопребывание пищеварительного огня (джатарагни), который сжигает пищу и порождает жар Лунное сплетение находится в центре мозга и порождает прохладу. Выполнение джаландхара бандхи приводит к тому, что замыкание пади, проходящей вокруг шеи, не позволяет холодной энергии лунного сплетения течь вниз ил и быть растворенной горячей энергией солнечного сплетения. Таким образом накапливается эликсир жизни, и жизнь продлевается. Бандха также прижимает каналы иду и пингалу и позволяет пране проходить через сушумну
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhbs9PRFW-RDdUiLkGTWCKDsk93mGgZrD2RXsleJ5enhvdpc66A0rfd0vnNRCwpiMzPeGYclotDVIRd64-ZPTHY12SWY_aQ6HJiPNdj3vlb49VLaN-tfOgXbkHsxS3z8mcxXMRl6AqnYu8/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE63.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 63</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhbs9PRFW-RDdUiLkGTWCKDsk93mGgZrD2RXsleJ5enhvdpc66A0rfd0vnNRCwpiMzPeGYclotDVIRd64-ZPTHY12SWY_aQ6HJiPNdj3vlb49VLaN-tfOgXbkHsxS3z8mcxXMRl6AqnYu8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE63.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 63</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiSZKFDLc89s8KaF0oIkJaKLlbth326nbB6WS6g5Z7Bs7wOEsnrUQU_JxgbQC7Nt9cYBJGMaL1JbDfRF6aHarpKqsMv9vi_qwPOhyscU2Svkt_ncrDwtSqA6QW9GolJTFZSCb7XRiThrhI/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE64.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 64</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiSZKFDLc89s8KaF0oIkJaKLlbth326nbB6WS6g5Z7Bs7wOEsnrUQU_JxgbQC7Nt9cYBJGMaL1JbDfRF6aHarpKqsMv9vi_qwPOhyscU2Svkt_ncrDwtSqA6QW9GolJTFZSCb7XRiThrhI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE64.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 64</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtENU_1bXTvRUbEgzfD_RbfuQKt55-8uKpje8p-uJWJrksbstH0CuADf_WKfS39JaTB0I6rwokDQBFlFPl3a586ms-OmJcfS5w4Ho0aJy4fzGkjEHGQVKwPzlYN1eDS2QSQdFXDZ3rl0U/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE65.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 65</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtENU_1bXTvRUbEgzfD_RbfuQKt55-8uKpje8p-uJWJrksbstH0CuADf_WKfS39JaTB0I6rwokDQBFlFPl3a586ms-OmJcfS5w4Ho0aJy4fzGkjEHGQVKwPzlYN1eDS2QSQdFXDZ3rl0U/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE65.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 65</figcaption></figure>
 
 Джаландхара бандха очищает носовые проходы и регулирует поток крови и праны в сердце, голове и эндокринных железах, расположенных в области шеи {щитовидной и парашитовидной). Если пранаяма выполняется без джаландхара бандхи, то в сердце, мозгу, глазных яблоках и среднем ухе немедленно ощущается давление. Это может привести к головокружению. Джаландхара бандха расслабляет мозг и успокаивает интеллект (манас, буддхи и ахамкара).
 
@@ -113,7 +113,7 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 ж) Поднимите поясничный и спинной отделы позвоночника вперед и вверх. Сожмите абдоминальные органы к позвоночнику и надавите ими на него.
 
-з)   Сохраняйте абдоминальное сжатие, поднимите руки от бедер и расположите их немного выше, по краям тазовых костей для более сильного сокращения.
+з)   Сохраняйте абдоминальное сжатие, поднимите руки от бедер и расположите их немного выше, по краям тазовых костей для более сильного сокращения.
 
 и) Выпрямите спину, не ослабляя при этом абдоминальное сжатие и не поднимая подбородок (фот. 67).
 
@@ -129,13 +129,13 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 п) Циклы следует выполнять только один раз в день.
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWjKZ1sawWc2-FtsV8FklEngpHz05YEWybqE-RmKsIbjrHuquI_rVrveYSzokNeiXIn1wC45-c-CwnOUM7hyn5yIRTlylF3QhWvskmXiAgkTSoIt_bxWMGyY2Grysyn3UOME-2CYLHPg4/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE66.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 66</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWjKZ1sawWc2-FtsV8FklEngpHz05YEWybqE-RmKsIbjrHuquI_rVrveYSzokNeiXIn1wC45-c-CwnOUM7hyn5yIRTlylF3QhWvskmXiAgkTSoIt_bxWMGyY2Grysyn3UOME-2CYLHPg4/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE66.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 66</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7W-l9X9KTNRjGj-Ki3C0exq0of4TMm6jf-FPvIkOGvE-XgUCLmCSpPOySLCQwdYd0cKMAHxFwCl3Aw_Mh099tZLm04iMGU9kTDFwkDPtwPSWyT1YoyuJbGHqaBL9WLdmRK28xj25O1hs/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE67.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 67</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7W-l9X9KTNRjGj-Ki3C0exq0of4TMm6jf-FPvIkOGvE-XgUCLmCSpPOySLCQwdYd0cKMAHxFwCl3Aw_Mh099tZLm04iMGU9kTDFwkDPtwPSWyT1YoyuJbGHqaBL9WLdmRK28xj25O1hs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE67.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 67</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqL4yFurJrfRsN582nywZhLeN9R4DvGlc7cN7n8TtIdFS7sJZKSJ9UAuGrG_S-QsMsDP04c96w1DurVDpSx-Eur-XqXzJ9fkQm9eq9ftM38vGbCgaxEZOCkGP6PyJSMR5T7fqGYpgGXRU/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE68.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 68</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqL4yFurJrfRsN582nywZhLeN9R4DvGlc7cN7n8TtIdFS7sJZKSJ9UAuGrG_S-QsMsDP04c96w1DurVDpSx-Eur-XqXzJ9fkQm9eq9ftM38vGbCgaxEZOCkGP6PyJSMR5T7fqGYpgGXRU/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE68.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 68</figcaption></figure>
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjznoIDNJFaZudeKlt0C7OllrerKCfZdd_vcVjDxGvNC1TajZAxSjANaJ8tQPRn3vuDs-sKtjMi4FLimizcOemQBxmMwBOxazlKXXFI1RA3B_VuIqoEUhueACSLy-j9_hzlS9nIi9RBiRk/s640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE69.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 69</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjznoIDNJFaZudeKlt0C7OllrerKCfZdd_vcVjDxGvNC1TajZAxSjANaJ8tQPRn3vuDs-sKtjMi4FLimizcOemQBxmMwBOxazlKXXFI1RA3B_VuIqoEUhueACSLy-j9_hzlS9nIi9RBiRk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE69.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 69</figcaption></figure>
 
 р) Когда в практике уддийяны достигнута прочность, постепенно вводите ее в разные виды пранаямы, всегда задерживая дыхание после выдоха (бахья кумбхака).
 
@@ -145,7 +145,7 @@ url: "/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 I Практикуйте только на пустой желудок.
 
-II.  Не сжимайте абдоминальную полость, пока не будет вытолкнут воздух.
+II.  Не сжимайте абдоминальную полость, пока не будет вытолкнут воздух.
 
 III. Если ощущается напряжение в висках или затруднено поступление воздуха, это означает, что уддийяна выполняется уже за пределом возможностей.
 
@@ -177,4 +177,4 @@ V Не сокращайте легкие в то время, когда абдо
 
 Практикуя мула бандху, йогин пытается достичь истинного источника, или мула всего творения. Его цель - полное обуздание или бандха читты, включающей в себя ум (манас), разум (буддхи) и эго (ахамкара).
 
-[Предыдущая](https://joga.blagorussia.ru/2020/03/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/03/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)

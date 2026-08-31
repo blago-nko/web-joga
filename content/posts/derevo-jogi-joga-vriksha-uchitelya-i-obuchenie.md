@@ -51,6 +51,6 @@ url: "/derevo-jogi-joga-vriksha-uchitelya-i-obuchenie/"
 
 Первое, о чем всегда должен помнить учитель, это то, что его ученики, те, кто занимается у него сейчас, такие же важные люди, как и он сам. Все те, кого я учил, стали для меня моими детьми. И теперь я беспокоюсь о том, как мои дети будут относиться к моим внукам!
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu2GHHLe8XnTiNs1DAmQ-8YMIZxBluJy_KUSqhLZ1Esm6q_-d7ah0Yhyq7Yi6FsoYi0svGg8-lGrI72yof0i20Gkmwo3TYow-Xcd2RssYjfCnjICryziUYTxNGpo_ENFxCAPpdR94o0nI/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258034.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu2GHHLe8XnTiNs1DAmQ-8YMIZxBluJy_KUSqhLZ1Esm6q_-d7ah0Yhyq7Yi6FsoYi0svGg8-lGrI72yof0i20Gkmwo3TYow-Xcd2RssYjfCnjICryziUYTxNGpo_ENFxCAPpdR94o0nI/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258034.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

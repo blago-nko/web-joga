@@ -7,13 +7,13 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chistota-i-pravilnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-asany-dlya-ehmocionalnoj-ustojchivosti.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiD1-4jAiLTv4SL_Dvf0fY_h_W_OHzyYuMEWsJtjgyIFmds7fql1lsVpMK-VlrqXjQeP4r1qJoKLr2k9NMk0MKTAu5G8aS3fqPEWP266I3Ku9diH2ZdWaoQjPhgZPWCT36qs7dCYgkXQ2Y/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580106.jpg" alt="Айенгар " title="Айенгар ">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiD1-4jAiLTv4SL_Dvf0fY_h_W_OHzyYuMEWsJtjgyIFmds7fql1lsVpMK-VlrqXjQeP4r1qJoKLr2k9NMk0MKTAu5G8aS3fqPEWP266I3Ku9diH2ZdWaoQjPhgZPWCT36qs7dCYgkXQ2Y/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580106.jpg" alt="Айенгар " title="Айенгар ">
 
 ## 
 
-Жизнь – это учеба 
+Жизнь – это учеба 
 
-Эта книга обозначила много разграничений – пять тонких тел, пять элементов, пять жизненных целей. Путешествие к исследованию Природы и обнаружению Души – это благодарный и восхитительный путь. Но где-то подсознательно мы не должны забывать, что все эти проявления не появляются ниоткуда, потому что они вплетены в сознание. Поэтому высшая цель йоги – полная трансформация сознания (читты),  которое наполняет все наше существо осознанностью и не знает границ.
+Эта книга обозначила много разграничений – пять тонких тел, пять элементов, пять жизненных целей. Путешествие к исследованию Природы и обнаружению Души – это благодарный и восхитительный путь. Но где-то подсознательно мы не должны забывать, что все эти проявления не появляются ниоткуда, потому что они вплетены в сознание. Поэтому высшая цель йоги – полная трансформация сознания (читты),  которое наполняет все наше существо осознанностью и не знает границ.
 
 Я надеюсь, что смог развеять миф о том, что Хатха-йога действует только на физическом уровне и не имеет отношения к духовной жизни. Чаще всего асаны попросту приравниваются несведущими людьми к физическим упражнениям. Вся моя жизнь была направлена на то, чтобы показать, как уже в начале практики этот путь способен привести своего приверженца к интеграции тела, ума и души.
 
@@ -27,4 +27,4 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Хокусай, великий японский художник, сказал, когда ему было уже далеко за семьдесят, что, если бы жизнь подарила ему еще десять лет, он стал бы великим творцом. Не могу не восхищаться его скромностью. Позвольте мне закончить книгу словами испанского художника Гойи, который на смертном одре говорил, что еще учится. Ко мне это тоже относится в полной мере. Я никогда не устану учиться, и я попытался поделиться с вами некоторыми своими уроками. Надеюсь, там, где я остановлюсь, вы сможете продолжить.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chistota-i-pravilnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-asany-dlya-ehmocionalnoj-ustojchivosti.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chistota-i-pravilnost.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-asany-dlya-ehmocionalnoj-ustojchivosti.html)

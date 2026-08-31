@@ -23,6 +23,6 @@ url: "/derevo-jogi-joga-vriksha-lyubov-i-brak/"
 
 Для меня брахмачарья представляет собой счастливую жизнь в браке, ибо женатый мужчина или замужняя женщина учатся любить своего спутника как умом, так и сердцем, тогда как некоторые, так называемые брахмачари, призывающие к безбрачию, могут не любить никого, но бросать похотливые взгляды на первого встречного.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-detstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-detstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhNCfSAGhm_pp4deEk3Na5XPLL54J5_SBjY8jCjq_19FelCXwh2crfyy8DdbqCRvtP7jo6u9dbf-sVkGe7LQpfURFLZLEO2JQDNkIYXN6sZ2ZpC56GoarjPuZgMv_lMy89fZJ3qhrjLwi4/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25806.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhNCfSAGhm_pp4deEk3Na5XPLL54J5_SBjY8jCjq_19FelCXwh2crfyy8DdbqCRvtP7jo6u9dbf-sVkGe7LQpfURFLZLEO2JQDNkIYXN6sZ2ZpC56GoarjPuZgMv_lMy89fZJ3qhrjLwi4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25806.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
