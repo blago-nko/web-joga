@@ -63,6 +63,8 @@ url: "/glava-4-pranayama-i-dyhatelnaya-sistema-pranayama-iskusstvo-dyhaniya-b-k-
 
 13. Дыхание начинается с выходом из утробы матери и прекращается, когда жизнь покидает тело. Когда ребенок еще находится в чреве, он получает кислород из крови матери и не нуждается в работе легких. Когда он рождается, первый вдох начинается по сигналу мозга.
 
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnVyKldoD6iG9dDF6WF0Up_NhRH_p3kuET3G5df9hpvIIOcGIbbC39BjQi4YuuYGsDyR1ALcLRia453A6Mkv8joMA6LCRTWNsUc3RAJTxiScthhM-7ssxpAPz5IlY0nDXFjo5UJ9D5Qlc/s640-rw/%252B16.jpg" alt="Рис.2 и 3. Мускулы передней и задней стороны туловища, используемые при дыхании" title="Рис.2 и 3. Мускулы передней и задней стороны туловища, используемые при дыхании">
+
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmgIQkwoWlNHjOIQN3Rf9TZ0MX_kR-6s1B8T40ooU2YNGi44jkptf15BTaJY85zJcKipGYHZk-1B8z57ZWSIy1HVVxxMjeCgNujiTaAHG6TH1ML43ajk80qx4uWx1rxpXIIQ08dPJpZmA/s640-rw/%252B17.jpg" alt="Рис.2 и 3. Мускулы передней и задней стороны туловища, используемые при дыхании" title="Рис.2 и 3. Мускулы передней и задней стороны туловища, используемые при дыхании">
 
 #### 
