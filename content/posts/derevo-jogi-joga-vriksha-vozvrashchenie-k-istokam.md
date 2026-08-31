@@ -1,7 +1,7 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Возвращение к истокам"
 date: 2019-10-28
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Мы представили восемь аспектов йоги как частей дерева, от его корней до..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Мы представили восемь аспектов йоги как частей дерева, от его корней до..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-vozvrashchenie-k-istokam.html"
 url: "/derevo-jogi-joga-vriksha-vozvrashchenie-k-istokam/"

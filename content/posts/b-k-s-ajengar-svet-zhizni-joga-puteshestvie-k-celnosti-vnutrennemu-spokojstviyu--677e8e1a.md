@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Преобразование ума"
 date: 2019-12-04
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Преобразование ума  У сознания (читты)&#160; есть три основных функции. Первая..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Преобразование ума  У сознания (читты)  есть три основных функции. Первая..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-preobrazovanie-uma.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-preobrazovanie-uma/"

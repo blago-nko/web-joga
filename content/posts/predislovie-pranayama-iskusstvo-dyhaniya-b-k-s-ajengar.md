@@ -1,7 +1,7 @@
 ---
 title: "Предисловие -  - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-01-04
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Предисловие  &#171;Йога есть не что иное, как тотальный опыт человеческой жизни;..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Предисловие  «Йога есть не что иное, как тотальный опыт человеческой жизни;..."
 aliases:
   - "/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

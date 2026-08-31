@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Четыре Цели Жизни (пурушартха)"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Четыре Цели Жизни (пурушартха)&#160;  Патанджали ясно выразил в своем предпосл..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Четыре Цели Жизни (пурушартха)   Патанджали ясно выразил в своем предпосл..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chetyre-celi-zhizni-purushartha.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chetyre-celi-zhizni-purushartha/"

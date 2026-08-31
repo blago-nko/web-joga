@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Эволюция природы"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Эволюция природы&#160;  Стоит отметить, что между теорией эволюции Дарвина и й..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Эволюция природы   Стоит отметить, что между теорией эволюции Дарвина и й..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-ehvolyuciya-prirody.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-ehvolyuciya-prirody/"

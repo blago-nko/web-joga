@@ -1,7 +1,7 @@
 ---
 title: "ОСНОВЫ ЙОГИ - Шри Ауробиндо - СПОКОЙСТВИЕ – ПОКОЙ – БЕСПРИСТРАСТНОСТЬ"
 date: 2019-11-03
-description: "Оглавление  \u0026gt;\u0026gt;\u0026gt; Следующая страница   I СПОКОЙСТВИЕ &#8211; ПОКОЙ &#8211; БЕСПРИСТРАСТНОСТЬ  Если ум беспокоен, невозможно заложить прочную..."
+description: "Оглавление  >>> Следующая страница   I СПОКОЙСТВИЕ – ПОКОЙ – БЕСПРИСТРАСТНОСТЬ  Если ум беспокоен, невозможно заложить прочную..."
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html"
 url: "/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost/"

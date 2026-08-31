@@ -1,7 +1,7 @@
 ---
 title: "Глава 28. Нади Садхана Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-23
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая Глава 28. Нади Садхана Пранаяма Нади представляет собой трубчатый орган, по кото..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 28. Нади Садхана Пранаяма Нади представляет собой трубчатый орган, по кото..."
 aliases:
   - "/2020/06/glava-28-nadi-sadhana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-28-nadi-sadhana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

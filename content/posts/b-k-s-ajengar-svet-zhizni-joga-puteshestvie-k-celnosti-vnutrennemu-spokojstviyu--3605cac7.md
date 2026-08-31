@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Память: освобождение от оков"
 date: 2019-12-03
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Память: освобождение от оков  Когда Павлов звонил в колокольчик в обеденн..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Память: освобождение от оков  Когда Павлов звонил в колокольчик в обеденн..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pamyat-osvobozhdenie-ot-okov.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pamyat-osvobozhdenie-ot-okov/"

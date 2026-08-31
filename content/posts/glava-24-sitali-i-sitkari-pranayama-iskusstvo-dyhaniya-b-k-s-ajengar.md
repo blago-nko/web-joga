@@ -1,7 +1,7 @@
 ---
 title: "Глава 24. Ситали и Ситкари Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-09
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая Глава 24. Ситали и Ситкари Пранаяма В этих двух пранаямах вдох выполняется не че..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 24. Ситали и Ситкари Пранаяма В этих двух пранаямах вдох выполняется не че..."
 aliases:
   - "/2020/06/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

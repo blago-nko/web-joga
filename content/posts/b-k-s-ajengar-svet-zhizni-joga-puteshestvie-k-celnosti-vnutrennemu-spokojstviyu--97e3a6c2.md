@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Асаны для Эмоциональной Устойчивости"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление   Асаны для Эмоциональной Устойчивости&#160;  Выполнив данную серию асан для эмоциональной устойчивости, вы..."
+description: "Предыдущая  >>> Оглавление   Асаны для Эмоциональной Устойчивости   Выполнив данную серию асан для эмоциональной устойчивости, вы..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-asany-dlya-ehmocionalnoj-ustojchivosti.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-asany-dlya-ehmocionalnoj-ustojchivosti/"

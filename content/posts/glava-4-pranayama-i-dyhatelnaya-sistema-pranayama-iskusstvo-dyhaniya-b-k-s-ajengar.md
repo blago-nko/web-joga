@@ -1,7 +1,7 @@
 ---
 title: "Глава 4. Пранаяма и дыхательная система - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-02-01
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава 4. Пранаяма и дыхательная система    &#171;Пока в теле есть дыхание, есть ж..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава 4. Пранаяма и дыхательная система    «Пока в теле есть дыхание, есть ж..."
 aliases:
   - "/2020/02/glava-4-pranayama-i-dyhatelnaya-sistema-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-4-pranayama-i-dyhatelnaya-sistema-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

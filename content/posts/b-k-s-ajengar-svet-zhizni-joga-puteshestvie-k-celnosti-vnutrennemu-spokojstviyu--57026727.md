@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Ненависть"
 date: 2019-11-22
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Ненависть&#160;  Ненависть и ее производные &#8211; зависть и злорадство &#8211; последний..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Ненависть   Ненависть и ее производные – зависть и злорадство – последний..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-nenavist.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-nenavist/"

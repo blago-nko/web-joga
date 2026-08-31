@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Шавасана и время"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Шавасана и время&#160;  Многим кажется странным, что в своей книге &#171;Прояснение..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Шавасана и время   Многим кажется странным, что в своей книге «Прояснение..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-shavasana-i-vremya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-shavasana-i-vremya/"

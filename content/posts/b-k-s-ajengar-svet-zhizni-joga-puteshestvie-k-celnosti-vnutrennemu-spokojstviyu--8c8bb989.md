@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Йога как Инволюция"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Йога как Инволюция&#160;  Все мы хотим развиваться и самосовершенствоваться. М..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Йога как Инволюция   Все мы хотим развиваться и самосовершенствоваться. М..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-joga-kak-involyuciya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-joga-kak-involyuciya/"

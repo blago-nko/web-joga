@@ -1,7 +1,7 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Энергия и божественная милость"
 date: 2019-10-28
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Мы говорили о пране. Давайте теперь рассмотрим иду, пингалу и сушумну. Он..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Мы говорили о пране. Давайте теперь рассмотрим иду, пингалу и сушумну. Он..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-ehnergiya-i-bozhestvennaya-milost.html"
 url: "/derevo-jogi-joga-vriksha-ehnergiya-i-bozhestvennaya-milost/"

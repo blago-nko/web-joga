@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Здоровые вритти"
 date: 2019-11-22
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Здоровые вритти  Первый совет Патанджали относительно нервных недугов я п..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Здоровые вритти  Первый совет Патанджали относительно нервных недугов я п..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zdorovye-vritti.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zdorovye-vritti/"

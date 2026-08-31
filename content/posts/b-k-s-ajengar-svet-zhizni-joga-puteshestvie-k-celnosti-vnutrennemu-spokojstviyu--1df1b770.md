@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Глава III Витальность: энергетическое тело (прана)"
 date: 2019-11-17
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава III   Витальность: энергетическое тело (прана)  Всем бы хотелось..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава III   Витальность: энергетическое тело (прана)  Всем бы хотелось..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-iii-vitalnost-ehnergeticheskoe-telo-prana.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-iii-vitalnost-ehnergeticheskoe-telo-prana/"

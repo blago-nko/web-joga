@@ -1,7 +1,7 @@
 ---
 title: "Глава 5. Нади и Чакры - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-02-09
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава 5. Нади и Чакры  1. Слово &#171;нади&#187; происходит от &#171;над&#187;, означающее п..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава 5. Нади и Чакры  1. Слово «нади» происходит от «над», означающее п..."
 aliases:
   - "/2020/02/glava-5-nadi-i-chakry-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-5-nadi-i-chakry-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

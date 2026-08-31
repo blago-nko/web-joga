@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Четыре Жизненных Этапа (ашрама)"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Четыре Жизненных Этапа (ашрама)&#160;  Четыре Жизненные Цели тесно взаимосвяза..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Четыре Жизненных Этапа (ашрама)   Четыре Жизненные Цели тесно взаимосвяза..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chetyre-zhiznennyh-ehtapa-ashrama.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-chetyre-zhiznennyh-ehtapa-ashrama/"

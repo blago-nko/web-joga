@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Боль: найти удобство даже в дискомфорте"
 date: 2019-11-17
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Боль: найти удобство даже в дискомфорте  Многие люди фокусируют свое вним..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Боль: найти удобство даже в дискомфорте  Многие люди фокусируют свое вним..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-bol-najti-udobstvo-dazhe-v-diskomforte.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-bol-najti-udobstvo-dazhe-v-diskomforte/"
