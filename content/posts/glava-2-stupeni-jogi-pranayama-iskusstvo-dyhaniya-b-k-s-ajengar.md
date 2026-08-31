@@ -1,7 +1,7 @@
 ---
 title: "Глава 2. Ступени Йоги - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-01-24
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава 2. Ступени Йоги  1.&#160; Существуют восемь ступеней йоги: Яма, Нияма, ..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава 2. Ступени Йоги  1.  Существуют восемь ступеней йоги: Яма, Нияма, ..."
 aliases:
   - "/2020/01/glava-2-stupeni-jogi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-2-stupeni-jogi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

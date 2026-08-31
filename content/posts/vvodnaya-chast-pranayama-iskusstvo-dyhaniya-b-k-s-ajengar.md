@@ -1,7 +1,7 @@
 ---
 title: "Вводная часть - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-01-10
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Моя первая книга &#171;Взгляд на Йогу&#187; захватила умы и сердца ревностных учен..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Моя первая книга «Взгляд на Йогу» захватила умы и сердца ревностных учен..."
 aliases:
   - "/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

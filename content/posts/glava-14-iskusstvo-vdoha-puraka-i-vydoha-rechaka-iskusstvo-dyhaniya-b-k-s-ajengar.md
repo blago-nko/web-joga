@@ -1,7 +1,7 @@
 ---
 title: "Глава 14. Искусство вдоха (Пурака) и выдоха (Речака) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-30
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая  Глава 14. Искусство вдоха (Пурака) и выдоха (Речака)  1. Вдох (пурака) - это п..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая  Глава 14. Искусство вдоха (Пурака) и выдоха (Речака)  1. Вдох (пурака) - это п..."
 aliases:
   - "/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar/"

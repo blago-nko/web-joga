@@ -1,7 +1,7 @@
 ---
 title: "Глава 15. Искусство задержки дыхания (Куллбхака) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-30
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая  Глава 15. Искусство задержки дыхания (Куллбхака)  1. Кумбхака означает кувшин,..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая  Глава 15. Искусство задержки дыхания (Куллбхака)  1. Кумбхака означает кувшин,..."
 aliases:
   - "/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar/"

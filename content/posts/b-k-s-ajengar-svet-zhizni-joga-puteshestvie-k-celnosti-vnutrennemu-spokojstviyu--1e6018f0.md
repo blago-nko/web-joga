@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Глава II Устойчивость: физическое тело (асана)"
 date: 2019-11-16
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава II   Устойчивость: физическое тело (асана)  С этого, собственно, и ..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава II   Устойчивость: физическое тело (асана)  С этого, собственно, и ..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-ii-ustojchivost-fizicheskoe-telo-asana.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-ii-ustojchivost-fizicheskoe-telo-asana/"

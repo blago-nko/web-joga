@@ -1,7 +1,7 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Усилие, осознание и радость"
 date: 2019-10-24
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Когда вы практикуете какую-либо позу йоги, способны ли вы найти ту тонкую..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Когда вы практикуете какую-либо позу йоги, способны ли вы найти ту тонкую..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost.html"
 url: "/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost/"

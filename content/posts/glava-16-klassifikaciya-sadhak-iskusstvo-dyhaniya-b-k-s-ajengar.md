@@ -1,7 +1,7 @@
 ---
 title: "Глава 16. Классификация Садхак - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-30
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая  1. Садхак разделяют на три основные группы в соответствии с прогрессом, кото..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая  1. Садхак разделяют на три основные группы в соответствии с прогрессом, кото..."
 aliases:
   - "/2020/03/glava-16-klassifikaciya-sadhak-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-16-klassifikaciya-sadhak-iskusstvo-dyhaniya-b-k-s-ajengar/"

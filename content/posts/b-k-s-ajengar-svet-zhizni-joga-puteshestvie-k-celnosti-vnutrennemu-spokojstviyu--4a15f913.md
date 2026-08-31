@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Изъяны разума"
 date: 2019-12-14
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Изъяны разума&#160;  Весь образовательный уклон йоги сводится к тому, чтобы вс..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Изъяны разума   Весь образовательный уклон йоги сводится к тому, чтобы вс..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-izyany-razuma.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-izyany-razuma/"

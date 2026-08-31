@@ -1,7 +1,7 @@
 ---
 title: "Приложение Курсы Пранаямы - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-29
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая Приложение Курсы Пранаямы Курс Пранаямы здесь разделен на пять ступеней: подгото..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая Приложение Курсы Пранаямы Курс Пранаямы здесь разделен на пять ступеней: подгото..."
 aliases:
   - "/2020/06/prilozhenie-kursy-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/prilozhenie-kursy-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar/"

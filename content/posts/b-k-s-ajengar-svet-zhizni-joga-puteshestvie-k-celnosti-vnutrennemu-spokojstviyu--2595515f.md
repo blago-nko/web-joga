@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Цель может быть достигнута"
 date: 2019-12-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Цель может быть достигнута&#160;  Медитация&#8239;&#8211; вот путь искоренения пяти корней..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Цель может быть достигнута   Медитация – вот путь искоренения пяти корней..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-cel-mozhet-byt-dostignuta.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-cel-mozhet-byt-dostignuta/"

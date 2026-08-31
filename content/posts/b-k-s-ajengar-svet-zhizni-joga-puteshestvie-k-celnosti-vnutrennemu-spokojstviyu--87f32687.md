@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Медитация (дхьяна)"
 date: 2019-12-14
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Медитация (дхьяна)&#160;  Я часто говорил, что йога&#8239;&#8211; это медитация, и медитац..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Медитация (дхьяна)   Я часто говорил, что йога – это медитация, и медитац..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-meditaciya-dhyana.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-meditaciya-dhyana/"

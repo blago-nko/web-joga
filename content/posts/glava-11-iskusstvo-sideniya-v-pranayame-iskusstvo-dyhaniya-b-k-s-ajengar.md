@@ -1,7 +1,7 @@
 ---
 title: "Глава 11. Искусство сидения в Пранаяме - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-22
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая  Глава 11. Искусство сидения в Пранаяме   Как нужно сидеть  1.&#160; В Бхагавад-Гите..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая  Глава 11. Искусство сидения в Пранаяме   Как нужно сидеть  1.  В Бхагавад-Гите..."
 aliases:
   - "/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar/"

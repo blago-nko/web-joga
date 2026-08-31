@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Истинная Природа Здоровья"
 date: 2019-11-16
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Истинная Природа Здоровья  Большинство людей просят от своего тела их не ..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Истинная Природа Здоровья  Большинство людей просят от своего тела их не ..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-istinnaya-priroda-zdorovya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-istinnaya-priroda-zdorovya/"

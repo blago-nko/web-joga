@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Дыхание и пранаяма"
 date: 2019-11-17
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Дыхание и пранаяма  Я не брался за пранаяму до 1944 года, хотя к тому вре..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Дыхание и пранаяма  Я не брался за пранаяму до 1944 года, хотя к тому вре..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dyhanie-i-pranayama.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dyhanie-i-pranayama/"

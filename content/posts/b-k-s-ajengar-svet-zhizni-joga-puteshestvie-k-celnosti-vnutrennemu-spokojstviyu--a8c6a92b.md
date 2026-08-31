@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Самскара: освобождение от привычки"
 date: 2019-12-03
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Самскара: освобождение от привычки  Если сравнить сознание с озером, на е..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Самскара: освобождение от привычки  Если сравнить сознание с озером, на е..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-samskara-osvobozhdenie-ot-privychki.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-samskara-osvobozhdenie-ot-privychki/"

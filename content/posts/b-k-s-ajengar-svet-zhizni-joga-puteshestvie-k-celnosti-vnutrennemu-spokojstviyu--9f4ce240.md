@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Универсальная Душа (пуруша) и Природа (пракрити)"
 date: 2019-11-15
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Универсальная Душа (пуруша) и Природа (пракрити)  Вплоть до этого момента..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Универсальная Душа (пуруша) и Природа (пракрити)  Вплоть до этого момента..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-universalnaya-dusha-purusha-i-priroda-prakriti.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-universalnaya-dusha-purusha-i-priroda-prakriti/"

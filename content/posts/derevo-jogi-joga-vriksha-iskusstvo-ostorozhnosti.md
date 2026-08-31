@@ -1,7 +1,7 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Искусство осторожности"
 date: 2019-10-27
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Многие книги по йоге описывают специальные очистительные методики, которы..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Многие книги по йоге описывают специальные очистительные методики, которы..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-iskusstvo-ostorozhnosti.html"
 url: "/derevo-jogi-joga-vriksha-iskusstvo-ostorozhnosti/"

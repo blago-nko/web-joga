@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Культура разума"
 date: 2019-12-13
-description: "Предыдущая \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Культура разума&#160;  Иногда я говорю своим ученикам, что то, чем они занимают..."
+description: "Предыдущая >>> Оглавление  <<< Следующая   Культура разума   Иногда я говорю своим ученикам, что то, чем они занимают..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-kultura-razuma.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-kultura-razuma/"

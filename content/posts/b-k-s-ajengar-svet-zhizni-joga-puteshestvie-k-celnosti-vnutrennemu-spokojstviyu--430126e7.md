@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Глава I Внутреннее Путешествие - Коши – слои сущности"
 date: 2019-11-16
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Глава I   Внутреннее Путешествие  Духовная самореализация &#8211; это наша обща..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава I   Внутреннее Путешествие  Духовная самореализация – это наша обща..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-i-vnutrennee-puteshestvie-koshi-sloi-sushchnosti.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-i-vnutrennee-puteshestvie-koshi-sloi-sushchnosti/"

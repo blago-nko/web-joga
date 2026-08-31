@@ -1,7 +1,7 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Линза Сознания"
 date: 2019-12-04
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Линза Сознания  &#171;Хатха-йога &#187; переводится с санскрита как &#171;солнце&#187; (ха)&#160; ..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Линза Сознания  «Хатха-йога » переводится с санскрита как «солнце» (ха)  ..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-linza-soznaniya.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-linza-soznaniya/"

@@ -1,7 +1,7 @@
 ---
 title: "Дар моего Гуруджи - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2019-12-29
-description: "Предыдущая  \u0026gt;\u0026gt;\u0026gt; Оглавление  \u0026lt;\u0026lt;\u0026lt; Следующая   Дар моего Гуруджи   Б. К. Сундрараджеш рагита нуткайюктибихи Йогашастрам..."
+description: "Предыдущая  >>> Оглавление  <<< Следующая   Дар моего Гуруджи   Б. К. Сундрараджеш рагита нуткайюктибихи Йогашастрам..."
 aliases:
   - "/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
