@@ -5,759 +5,244 @@ aliases:
   - "/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
-
 [Предыдущая](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
 ## Глава 11. Искусство сидения в Пранаяме
-
 #### Как нужно сидеть
-
 1.  В Бхагавад-Гите (VI, 10-15) Кришна объясняет Арджуне, какую практику следует выполнять йогину, чтобы очиститься:  
-
 * '10 «В тайном месте, в одиночестве, пусть йогин постоянно будет в гармонии со своей душой, хозяином самого себя, свободным от надежды и мирской собственности.
-
 * '11. Пусть он найдет место опрятное и чистое и сядет на сиденье, жесткое, не слишком высокое и не слишком низкое, покрытое сложенной тканью, оленьей шкурой и священной травой (куша).
-
 * '12. Сидя там, пусть он практикует йогу для самоочищения, с сосредоточенным умом, держа органы восприятия и действия под контролем.
-
 * '13. С прямым туловищем, шеей и головой, неподвижный и спокойный, с видением, обращенным внутрь, его взгляд фиксирован на кончике носа
-
 * '14. С душой мирной и бесстрашной, непоколебимо исполняющий обет брахмачарьи, пусть он остается, с бдительным контролируемым умом, погруженным в Меня как в Высшее.
-
 * '15. Иогин, чей ум постоянно под контролем, всегда стремящийся соединиться с Самостью, достигает мира Нирваны - Мира Высшего, что пребывает во Мне».
-
 2. Если не вдаваться в анатомические подробности, то приведенная выше цитата описывает традиционный метод сидения в медитации (дхьяна). Самость (Атма) несомненно находится за пределами чистоты и нечистоты, но она может быть захвачена умом и желаниями. Господь Кришна говорит: «Как огонь покрыт дымом, а зеркало пылью, как зародыш окутан маткой, так и Самость (Атма) поглощена желаниями, порожденными чувством и умом» (Бхагавад-Гита, III, 38). Итак, сохраняйте тело прочным, как горная вершина, а ум - спокойным и устойчивым, как океан, для медитации (дхьяна). Момент, когда тело утрачивает свой разум или прочность, разум мозга теряет свою силу ясности, как в действии, так и в восприятии. Когда тело и ум хорошо уравновешены, приходит опыт чистого просветления разума (саттвическая праджня).  
-  
 3. В медитации голову и шею держат прямо и перпендикулярно полу, в то время как в пранаяме выполняется подбородочный замок (джаландхара бандха). Это предотвращает напряжение сердца, сохраняет мозг пассивным и дает возможность уму испытать внутреннее молчание (см. [гл. 13](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html)).  
-  
 4. В искусстве сидения в медитации (дхьяна) целью является сидеть прямо, с позвоночником    прямым и задней стороной ребер и мышцами - прочными и алертными. Следовательно, располагайте тело таким образом, что если провести вертикальную линию от центра головы к полу, то она пройдет через макушку, переносицу, подбородок, пупок и лобковый симфиз (фот. 15).  
-  
 5. С другой стороны, брови, уши, верхние части плеч, ключицы, соски, плавающие ребра и тазовые кости на уровне бедренных сочленений сохраняются параллельно друг Другу (фот. 16). И, в заключение, сохраняйте серединную точку между верхушками лопаток перпендикулярно крестцу, чтобы избежать отклонения тела.  
-  
 6. В пранаяме существенно в первую очередь научиться правильно сидеть с опущенной головой, чтобы тело оставалось прямым и устойчивым, а также максимально наполнять легкие воздухом, с тем чтобы обогатить кровь кислородом. Сохраняйте высоту позвоночного столба одинаковой на протяжении всей практики.  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEipEPFE2hC-owjFBb6luAf_wf931NJDpnZcKK8b8AWzkk5UtO12aRMc9rGqboTbxggCvOAPlsM2hAILqzXsAH364r2G99b4MyTMdfUJdGds1RkYGvhjLZRDa21R5GJ4-VKJniuwm0sYrj8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE15.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEipEPFE2hC-owjFBb6luAf_wf931NJDpnZcKK8b8AWzkk5UtO12aRMc9rGqboTbxggCvOAPlsM2hAILqzXsAH364r2G99b4MyTMdfUJdGds1RkYGvhjLZRDa21R5GJ4-VKJniuwm0sYrj8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE15.jpg) |
 | Фото 15 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgC5zF_MWBWtuePD_nHgaylW8XvW-pMJx1GB5Y_13nFYwGiOctZ_4TgArHDk89fTk0CKaheQQUo5rEUHIWOSOoBY0RZWvtOHXtCr6V1MvB5lou4VwUBykbX286snn-8k4w7tw2ROgaAPbg/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE16.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgC5zF_MWBWtuePD_nHgaylW8XvW-pMJx1GB5Y_13nFYwGiOctZ_4TgArHDk89fTk0CKaheQQUo5rEUHIWOSOoBY0RZWvtOHXtCr6V1MvB5lou4VwUBykbX286snn-8k4w7tw2ROgaAPbg/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE16.jpg) |
 | Фото 16 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXDR4NHGvootT3uDlOO7-lwmsE4b-_bcjzYrvL6BrsWkhKDy2ZRYEmLRMz0Eqv1WbvesubgNBJwrir0a7LJkMilqltXX1TYywOgbsJH1vj0UgR0MEmxILTJy-TqIlp-EyF8aDENYPwpcs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE17.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiXDR4NHGvootT3uDlOO7-lwmsE4b-_bcjzYrvL6BrsWkhKDy2ZRYEmLRMz0Eqv1WbvesubgNBJwrir0a7LJkMilqltXX1TYywOgbsJH1vj0UgR0MEmxILTJy-TqIlp-EyF8aDENYPwpcs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE17.jpg) |
 | Фото 17 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg55WhDxFnCr9Z64N3ky6jfcYPZukOVRgS3PXDuih-ifFZemgUKS2DjnvaCBVln8n33cvIIwmy8UcbO2gvsA1mANjKrCNhcm3WxB_9RBxbcy27aFiNYh9ESFFvVo_oUH8bmypHGfvNwaFg/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE18.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg55WhDxFnCr9Z64N3ky6jfcYPZukOVRgS3PXDuih-ifFZemgUKS2DjnvaCBVln8n33cvIIwmy8UcbO2gvsA1mANjKrCNhcm3WxB_9RBxbcy27aFiNYh9ESFFvVo_oUH8bmypHGfvNwaFg/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE18.jpg) |
 | Фото 18 |
-
-  
 7. Будьте постоянно бдительны, тщательно выверяйте правильность положения тела на протяжении всей практики, на вдохе (пурака), выдохе (речака) и задержке дыхания (кумбхака).  
-  
 8. Как декоратор интерьера оформляет комнату таким образом, чтобы она была просторной, так и садхака создает максимум пространства в своем туловище, чтобы дать возможность легким полностью расшириться в пранаяме. Его способность к этому возрастает с практикой.  
-  
 9.  Согласно Бхагавад-Гите, тело называется полем (кшетра), или местопребыванием Самости (Атма), и Самость есть Познавший Поле (кшетраджна), который наблюдает, что происходит, когда тело развивается при помощи Ирана ямы  Пранаяма - это мост между телом и Самостью.  
-  
 10. Чтобы развить необходимое поле действия в теле, прежде всего нужно утвердить в уме правильное положение тела. Если сидячая поза непрочна, позвоночник будет сгибаться и опускаться, диафрагма не будет функционировать должным образом и грудная клетка будет впалой, затрудняя наполнение легких дающим жизнь кислородом.  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1dvaug3t30E1174cXX8Ux_e62vx0w6vf_Em_CmK0P0xzELRg3q_ga8fI6qYsSCeJyh_elqHNvIBZINbKz_dK2ZCgxN8rkPHpibpJaDiovw7WXcvOHLcBPcmJlNNnp8H_-g8lpxr_npVQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE19.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1dvaug3t30E1174cXX8Ux_e62vx0w6vf_Em_CmK0P0xzELRg3q_ga8fI6qYsSCeJyh_elqHNvIBZINbKz_dK2ZCgxN8rkPHpibpJaDiovw7WXcvOHLcBPcmJlNNnp8H_-g8lpxr_npVQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE19.jpg) |
 | Фото 19 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-NcHxofKpazAUR1iMKV7yF57_mVz8I2amA6u4X9mXn0jsnKF2vW1je6_2J_aH8acHg-wG1f5wMDXB8jo1Q6uaGLfVF3TzpaOB9EK6TOkAaWy7ekgB7rPNLWQWrqTW6DhKkClBy_VPyes/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE20.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-NcHxofKpazAUR1iMKV7yF57_mVz8I2amA6u4X9mXn0jsnKF2vW1je6_2J_aH8acHg-wG1f5wMDXB8jo1Q6uaGLfVF3TzpaOB9EK6TOkAaWy7ekgB7rPNLWQWrqTW6DhKkClBy_VPyes/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE20.jpg) |
 | Фото 20 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_pEGeb30mD-bmoWb8cLdmuLtj2BGNchEWRD_bVCseQsTVJbmAIXjk9mQPz7MUteqTgt8W-FZXlKjosARNqeOmtdLxZxj9TnLjDkBOFkSj4yAkIk2lRIT_WSst42u3VZbF3pxqwp5YgA8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE21.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_pEGeb30mD-bmoWb8cLdmuLtj2BGNchEWRD_bVCseQsTVJbmAIXjk9mQPz7MUteqTgt8W-FZXlKjosARNqeOmtdLxZxj9TnLjDkBOFkSj4yAkIk2lRIT_WSst42u3VZbF3pxqwp5YgA8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE21.jpg) |
 | Фото 21 |
-
-  
 11. Ниже приведена попытка детального описания техники сидения в пранаяме, разделяя тело на четыре области: а) нижние конечности, куда входят ягодицы, таз, бедра, колени, голени, лодыжки и стопы; 6) туловище; в) плечи, предплечья запястья и пальцы; г) шея, горло и голова. Сохраняйте устойчивость в области ягодиц и таза, которые служат основанием для правильной позы.  
-  
 12. Практикуя пранаяму, обычно сидят на земле в позах сид-дхасана, свастикасана, бхадрасана, вирасана, бадхаконасана или падмасана ([фот. 3 — 14](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). В каждой из них позвоночник и ребра походят на широкую среднюю часть бананового листа (см. фот. 2), где позвоночник подобен срединной жилке, а равномерно расположенные ребра напоминают боковые жилки  Копчик похож на кончик листа. Эти позы были описаны в книге «Взгляд на Йогу.  
-  
 13. Хотя можно использовать многие позы, мой личный опыт показывает, что падмасана    -это королева асан в практике пранаямы или медитации (дхьяны). Это - ключ к успеху в обоих случаях В падмнсане все четыре вышеуказанные области тела уравновешены (как в [Части II](https://joga.blagorussia.ru/2020/06/chast-vtoraya-svoboda-i-blazhenstvo-glava-29-dhyana-meditaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)), и мозг располагается правильно и равномерно на позвоночном столбе, обеспечивая психосоматическое равновесие.  
-  
 14. Спинной мозг проходит внутри позвоночника. В падмасане регулирование положения позвоночного столба и ребер происходит с обеих сторон равномерно, ритмично и одновременно. Праническая энергия течёт равномерно, должным образом распределяясь по всему телу.  
-  
 15. В сиддхасане верхняя часть позвоночника более вытянута по сравнению с другими, а в вирасане больше вытянута поясничная область. Некоторые из этих поз могут быть более удобны, но для правильности и действенности занятий пранаямой лучше всего подходит падмасана. В падмасане бедра находятся ниже паха, нижняя часть абдоминальной области сохраняется растянутой, создавая максимальное пространство между лобковой костью и диафрагмой и обеспечивая таким образом возможность легким полностью расширяться. Тем, кто практикует пранаяму в падмасане, особое внимание следует уделить трем основным сочленениям нижней части тела тазобедренным, коленным и голеностопным - они должны двигаться без усилий.  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiU-JMcn_79I2EVjhvl76oYLpXuFPL0iturl5kVmMnXFEpFo3ZTQUWzo83Ux86MmMocN7c3SC63p6doDPZaelR0T4S9R-38vVGvkrE9XSY5RbPvNKCFCtmXLE_gh51vHmo26oCYupcZJmo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE22.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiU-JMcn_79I2EVjhvl76oYLpXuFPL0iturl5kVmMnXFEpFo3ZTQUWzo83Ux86MmMocN7c3SC63p6doDPZaelR0T4S9R-38vVGvkrE9XSY5RbPvNKCFCtmXLE_gh51vHmo26oCYupcZJmo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE22.jpg) |
 | Фото 22 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnJmLm3h49vkigT_caRPoI0ccrCbyGs5KgSCJpcqZllRprtoebDqAv7YmJIIPfZgx5VrZlB0DQpHbSONy94_Vfup4sKVCVK-gkyThWR7bAh_8wyYyCfXyyzRhRivREIBciKLV3vws8vPs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE23.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnJmLm3h49vkigT_caRPoI0ccrCbyGs5KgSCJpcqZllRprtoebDqAv7YmJIIPfZgx5VrZlB0DQpHbSONy94_Vfup4sKVCVK-gkyThWR7bAh_8wyYyCfXyyzRhRivREIBciKLV3vws8vPs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE23.jpg) |
 | Фото 23 |
-
 #### Падмасана
-
 16. Сядьте на основание таза после выполнения падмасаны. Обе ягодицы равномерно расположите на полу. Если вы опираетесь на одну из ягодиц сильнее, позвоночник не будет ровным. Прижмите бедра к полу, приводя бедренные кости глубже в верт-/гужную впадину. Натяните кожу на четырехглавых мышцах бедер в направлении коленей. Это создает свободу в области коленей для диагонального и кругового движений от верхушки наружной части коленей к нижней области внутренних частей. Приведите подколенные мышцы ближе, с  гем чтобы уменьшить расстояние между бедрами. После этого анус и гениталии уже не будут оставаться на полу ([фот. 13](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). Площадью опоры здесь служит очень маленькая область промежности между анусом и гениталиями. Направленное вверх натяжение позвоночника начинается отсюда, и тело одновременно поднимается вверх и в стороны от костяка таза. Испытайте это и сохраняйте верхнюю часть и основание лобковой области перпендикулярными. Если это трудно, положите под ягодицы сложенное одеяло (Фот 17 — 18). В падмасане оба колена не будут располагаться равномерно на полу ([фот. 13](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).  
-  
 17. Не разворачивайте стопы вверх, к потолку, а держите их обращенными в стороны, к стенам (фот.: 19 — неправильно, 20 — правильно). Растяните плюсны (подъем ноги), повернув большие пальцы по направлению к маленьким, таким образом свод стопы сохраняется прочным. Если свод стопы опускается, ягодицы и анус теряют свое устойчивое положение, туловище наклоняется, и позвоночник прогибается в середине, нарушая равновесие всего туловища. Не разворачивайте колени и не давите на них намеренно (фот 21 и 22). Любая такая попытка только сместит центр тяжести. Впоследствии, благодаря регулярной практике, хотя колено и остается над землей, практикующий не будет чувствовать этого. Чтобы добиться равновесия в положении обоих бедер, рекомендуется расположить колено» не касающееся поверхности пола, на свернутое полотенце (фот. 23). На следующий день поменяйте положение ног, чтобы достичь равномерной нагрузки (фот. 24).  
-
 #### Туловище
-
 18. Туловище, или торс, играет наиболее важную роль в практике пранаямы. Сохраняйте энергичную активность тела, ноги и руки - пассивными, как во сне, область от шеи до макушки - в чистом состоянии бдительного спокойствия. Туловище действует как мост между статичными ногами и руками с одной стороны и бдительным, но спокойным умом.
-
 19 Торс будет сгибаться, если спинные и межреберные мышцы утратят тонус или если позвоночник не полностью вытянут. Мышцы от подмышки до бедер спереди, по бокам и на спине являются основными. Они прикрепляются своими верхушками на ключицах и плечах, а нижними частями на тазовых и бедренных костях. Прочно держите спину. Отрегулируйте положение позвоночника от основания до верхушки, от копчика до шейных позвонков Вытяните позвоночный столб не только от центра, но также с левой и правой сторон.  
-  
 20. Сохраняйте область пупка пассивной и перпендикулярной к полу. Сузьте область поясницы за счет поднятия ее с обеих сторон. При этом следите, чтобы в этой области не возникало напряжения. Эмоции, особенно страх, порождают жесткость и напряжение в этой области, которое воздействует на диафрагму и, посредством ее, на дыхание. Когда область поясницы пассивна, ум и интеллект сохраняют спокойствие. Итак, тело, ум и интеллект едины с Самостью.  
-  
 21. В тадасане (фот. 25) (см. «Взгляд на Йогу») пространство образуется от основания лобковой кости до пупка, и эта область остается плоской. В сидячих положениях сохраняйте такое же натяжение, как в тадасане. Всегда втягивайте тело спереди назад. Вытягивайте все тело, начиная с ануса к лобковой кости, к пупку, к диафрагме, к грудине, и, наконец, к межключичной впадине. Если лобковая кость опущена, правильность выполнения сидячей позы утрачена, и практика теряет свою четкость. Когда грудная клетка правильно вытянута, легкие функционируют эффективно и в дыхательную систему поступает больше кислорода. Всякие препятствия, возникающие в тонких каналах (нади), по которым движется праническая энергия, устраняются, и энергия, поступившая в организм при вдохе, свободно течет по всей системе. Как солнечный диск излучает потоки света одинаково во всех направлениях, так и Самость излучает жизненную энергию вдыхаемого воздуха во все уголки легких, если грудина как следует поднята и вытянута.  
-  
 22. Помните, что расширение возделывает поле, которое приносит свободу, свобода приносит точность, которая в свою очередь творит чистоту, и это ведет к божественному совершенству.  
-  
 23. Чтобы установить, правильна ли ваша поза, слегка согните кончики пальцев рук и надавите ими мягко, легко и равномерно на пол рядом с ягодицами. Расположите ноги перпендикулярно полу (вид сбоку, фот 26, вид спереди фот 27, вид сзади - фот. 28). Если указательные пальцы давят на пол слишком сильно, значит голова наклонена вперед; если мизинцы - тело отклонено назад. Если пальцы одной руки давят на пол сильнее, чем пальцы другой руки, значит тело наклонено в ту сторону, где давление больше (фот. 29). Равномерное и устойчивое давление на большие, средние пальцы и мизинцы и легкое давление на другие пальцы держит тело выпрямленным. Не дергайте плечами и не поднимайте их, когда производите давление на пальцы. Не поднимая колен, слегка поднимите ягодицы от пола (фот 30), напрягите ягодичные мышцы, подверните под себя копчик и затем расположите ягодицы на полу. Тот, кто не может поднять ягодицы, опираясь на кончики пальцев, может опереться на ладони, расположив их как на фот. 31.  
-  
 24. Поднимите руки от пола и расположите тыльные стороны запястий на коленях (фот. 32), или левую ладонь на правой, поместив их возле пупка, а затем правую ладонь — - на левой (фот. 33). Эта смена рук помогает мышцам спины достичь гармоничного натяжения. Не выпрямляйте руки в локтях, так как это заставляет вас наклоняться вперед (фот 34).  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgg_E-U_u1lu16iSbAfctcs_UlT9N6_a-vpSc1HzEfis4UuL3M2QptWtsT7KmRiDTPmcYstjImxGJEW9273CNPtyAaJby1Mbo2JTeiPzFvKnM43DkR_X2CJDE-auc3Z78kPkTBBVeG6HrU/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE24.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgg_E-U_u1lu16iSbAfctcs_UlT9N6_a-vpSc1HzEfis4UuL3M2QptWtsT7KmRiDTPmcYstjImxGJEW9273CNPtyAaJby1Mbo2JTeiPzFvKnM43DkR_X2CJDE-auc3Z78kPkTBBVeG6HrU/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE24.jpg) |
 | Фото 24 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDqYNv-t1rbUUjGrNgPNaAREgM11pa4CVFhyphenhyphenTURwy1Wj1o0GeLySIAq0bYbujxyDrGDEAwB8rfgKQmrtbKrVCtfi8K8TvCFHKFJ862ZFH_0yzJ9lwB1SAHRbMK1AK4szUg8ilhwLa9tE0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE25.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDqYNv-t1rbUUjGrNgPNaAREgM11pa4CVFhyphenhyphenTURwy1Wj1o0GeLySIAq0bYbujxyDrGDEAwB8rfgKQmrtbKrVCtfi8K8TvCFHKFJ862ZFH_0yzJ9lwB1SAHRbMK1AK4szUg8ilhwLa9tE0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE25.jpg) |
 | Фото 25 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOopfLdovrp2vs_58VIZ1tsCXM6-hSSINlhQhcg_JPCMvLl46smgmDHwo8th5L7WmCY_K38xwlQHlrVCluIOwUNGc9aJCr21teoSksqgoSsP4e7VfillaxsuILDR5Tmf2GL5Gm-S_mAFs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE26.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOopfLdovrp2vs_58VIZ1tsCXM6-hSSINlhQhcg_JPCMvLl46smgmDHwo8th5L7WmCY_K38xwlQHlrVCluIOwUNGc9aJCr21teoSksqgoSsP4e7VfillaxsuILDR5Tmf2GL5Gm-S_mAFs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE26.jpg) |
 | Фото 26 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtP8g0L5CrMh9ipCHxu_cKOJZR_IplbU2Sa0XSbOoLzbQTWaEQddciSgT0FMFozodbCRjT_ThLh_s4gV0tjSEIpl4a3F43XLkYnxjLBmoDlsNU0tc60Gvlz4GCO6fDId5djUVGFQvncss/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE27.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtP8g0L5CrMh9ipCHxu_cKOJZR_IplbU2Sa0XSbOoLzbQTWaEQddciSgT0FMFozodbCRjT_ThLh_s4gV0tjSEIpl4a3F43XLkYnxjLBmoDlsNU0tc60Gvlz4GCO6fDId5djUVGFQvncss/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE27.jpg) |
 | Фото 27 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivnC8UH29_WbRK-BEPimAzadtRCBeCaDCVkgtF7RoFiIamgC2CCWl8A9n_peke1CtNIawRVEwRfBluryuuTXkkHVBEeAhT1M3n3D0LjZIRmPZN08teDZU1BO62vsIZJobjBY0dttjdC7s/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE28.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEivnC8UH29_WbRK-BEPimAzadtRCBeCaDCVkgtF7RoFiIamgC2CCWl8A9n_peke1CtNIawRVEwRfBluryuuTXkkHVBEeAhT1M3n3D0LjZIRmPZN08teDZU1BO62vsIZJobjBY0dttjdC7s/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE28.jpg) |
 | Фото 28 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxDuXH2erk_NXhO6qAAeLVA8-NgYdFOjFJ6ogteNSWcc5wVOgDhCZTbkU265KloXUpvvTaJmovuUG4sLD_8jjGz4B4bXnWns0-HtzzcENj7s_7uuWZ80zG7-kD0S7f_p-KbTDswvgXyqE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE29.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxDuXH2erk_NXhO6qAAeLVA8-NgYdFOjFJ6ogteNSWcc5wVOgDhCZTbkU265KloXUpvvTaJmovuUG4sLD_8jjGz4B4bXnWns0-HtzzcENj7s_7uuWZ80zG7-kD0S7f_p-KbTDswvgXyqE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE29.jpg) |
 | Фото 29 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVgtBeC0aJHRfAPrQxoVOqsQ-m_NwxbAkKdlTAzeyALm62RjkmGL2nxC_Q53Vxn43pUk2spp6edyP9m40DWV03BuUfeuGTBtKzEPjYSimWJ4rgWaEv6Xs9YeN7OaA40piiWucVYhmSCQs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE30.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVgtBeC0aJHRfAPrQxoVOqsQ-m_NwxbAkKdlTAzeyALm62RjkmGL2nxC_Q53Vxn43pUk2spp6edyP9m40DWV03BuUfeuGTBtKzEPjYSimWJ4rgWaEv6Xs9YeN7OaA40piiWucVYhmSCQs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE30.jpg) |
 | Фото 30 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTP07cC7AD-9EUhDcFGKP2iJKue8rkjmFWz0m8P8Yd_m6qkWeLEONd8DtI11EbMtF0RMXX12aYZfPa4K_OdkNRswkEivlAXTqw9k_zfbcvWzenvRl4_xsTwi6t9bn0X-v3Qyq7q83FuH0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE31.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTP07cC7AD-9EUhDcFGKP2iJKue8rkjmFWz0m8P8Yd_m6qkWeLEONd8DtI11EbMtF0RMXX12aYZfPa4K_OdkNRswkEivlAXTqw9k_zfbcvWzenvRl4_xsTwi6t9bn0X-v3Qyq7q83FuH0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE31.jpg) |
 | Фото 31 |
-
 #### Три важнейшие области
-
 25 Запомните три важнейшие области тела:  
 1)  промежность между анусом и гениталиями;  
 2) крестец и первый поясничный позвонок;  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgq6OrVzTwAeYIU_FlXC97aa6IXarOBNuS340aptyZDnX0LADU_3M6chl6YhI8ysVH9X0TFCDwxpDoXOK7AaZIajEhMMOPscgbORue5hmMFlDhJyof1Af2-e7G-Y4BIcxnV_dKFk1_HEbA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE32.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgq6OrVzTwAeYIU_FlXC97aa6IXarOBNuS340aptyZDnX0LADU_3M6chl6YhI8ysVH9X0TFCDwxpDoXOK7AaZIajEhMMOPscgbORue5hmMFlDhJyof1Af2-e7G-Y4BIcxnV_dKFk1_HEbA/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE32.jpg) |
 | Фото 32 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFwZfTekMTbk3icPtfC9Q4mBgK1E_UuKNCuOSiMV_OoUdTORHtHB9E0cq_DAzNwaZ1xaUK0AUfcBKIb0sXk17Ch_fUHBFCAnGxU_IoVLMdwz_lssJP4qB49fzZ4NevDr7o2Z-CwTst1jM/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE33.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFwZfTekMTbk3icPtfC9Q4mBgK1E_UuKNCuOSiMV_OoUdTORHtHB9E0cq_DAzNwaZ1xaUK0AUfcBKIb0sXk17Ch_fUHBFCAnGxU_IoVLMdwz_lssJP4qB49fzZ4NevDr7o2Z-CwTst1jM/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE33.jpg) |
 | Фото 33 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikOb-mJ5vY2L1hOkageKmW2UA3FCaB7oAcrKDEFItuj3Y4nFslCU9RCvSiT-8jhRUS9V2EC3OY71dWU58r_TDn7Lx6pEJ5NQkRyD9Yd1LurAJUKFtsFVIq6roMr5DoTYvu_e46_Z_MM4w/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE34.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikOb-mJ5vY2L1hOkageKmW2UA3FCaB7oAcrKDEFItuj3Y4nFslCU9RCvSiT-8jhRUS9V2EC3OY71dWU58r_TDn7Lx6pEJ5NQkRyD9Yd1LurAJUKFtsFVIq6roMr5DoTYvu_e46_Z_MM4w/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE34.jpg) |
 | Фото 34 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhpHTtZB-DSuyquNpzJ3alo2ha6hl2OMsFe9CEagL4wU7hjeWxC-rXcXW5x4xDlhdc4GKtQr1K6XWDKLJDWSlX6dNX8BQjEnjW7MmkKP2zRIi_LgXdXubNBUUJF7QmWo1U39pz80lh2L3c/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE35.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhpHTtZB-DSuyquNpzJ3alo2ha6hl2OMsFe9CEagL4wU7hjeWxC-rXcXW5x4xDlhdc4GKtQr1K6XWDKLJDWSlX6dNX8BQjEnjW7MmkKP2zRIi_LgXdXubNBUUJF7QmWo1U39pz80lh2L3c/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE35.jpg) |
 | Фото 35 |
-
-  
 3) девятый грудной позвонок на спине и центр грудной кости спереди (фот. 35 и рис 18).  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEje3l2Rjq3cNtCsYOyC5uTnal-9rdmDYJ4JiocVuTjMV4DHDuBJE7LEqyUMFqmMhjWfEknBBrIsBfAdn0LEJFs26LHf1jTsb7L5PkJRqHlOc2MrYyK3cmHPEvUAQNlBcKSptRwu9ssvmDQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE36.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEje3l2Rjq3cNtCsYOyC5uTnal-9rdmDYJ4JiocVuTjMV4DHDuBJE7LEqyUMFqmMhjWfEknBBrIsBfAdn0LEJFs26LHf1jTsb7L5PkJRqHlOc2MrYyK3cmHPEvUAQNlBcKSptRwu9ssvmDQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE36.jpg) |
 | Фото З6 |
-
-  
-
 [![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNERWZPw_iCYpBLHuKx9CrdMbJEN9KEH04mRSaGygFwTEq8TUyMZawnL5RBZdUzfxPHAykaChyua2WWhmtH7dIpRqXKy3gvwf0uOhbAggpA5apy6uamSwClC0TnHQagQmN85xSzy5I0YQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE37.jpg "Б. К. С. АЙЕНГАР")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNERWZPw_iCYpBLHuKx9CrdMbJEN9KEH04mRSaGygFwTEq8TUyMZawnL5RBZdUzfxPHAykaChyua2WWhmtH7dIpRqXKy3gvwf0uOhbAggpA5apy6uamSwClC0TnHQagQmN85xSzy5I0YQ/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE37.jpg)
-
 #### Рис 18. Три критические точки.
-
  Когда поза правильна, кожа на тыльной стороне шеи и плеч движется в направлении основания тела, а от ягодиц и бедер вытягивается вверх. Максимальное напряжение ощущается в первом поясничном позвонке, где встречаются эти два противоположных движения. Грудной позвонок на спине и центр грудины спереди поднимаются по направлению к подбородку, в то время как подбородок опускается вниз, как в джаландхара бандхе. Направленное вверх натяжение кожи в центре грудины помогает подбородку опускаться таким образом, что он располагается в межключичной впадине. Первый поясничный позвонок используется как точка опоры для вертикального вытягивания позвоночника и расширения грудной клетки в стороны, чтобы поддерживать мощь четырех столпов тела (углов туловища) с обеих сторон. Если спина или поясница прогибаются, легкие не могут расширяться должным образом. Только правильное движение и натяжение кожи на спине, по бокам и на передней части туловища дает возможность наполняться верхним долям легких.  
-
 #### Кожа туловища
-
 26. Подобно птице, расправляющей крылья в полете, держите лопатки опущенными и расправленными по обе стороны позвоночника. Затем кожа на лопатках движется вниз, и спинная сторона подмышек оказывается немного ниже передней. Это предотвращает сгибание спины. Кожа передней части туловища растягивается в обе стороны по мере того, как грудь поднимается от подмышек (фот 36).  
-  
 27. Внутренние и наружные межреберные мышцы связывают между собой всю грудную клетку и контролируют диагональное натяжение Общеизвестно, что действие внутренних межреберных мышц - ~ выдыхание, а наружных - — вдыхание. Техника нормального глубокого дыхания отличается от техники пранаямы. В пранаяме внутренние межреберные мышцы спины стимулируют вдох, а наружные передние - выдох. Во внутренней задержке (см. [гл 15](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)) садхака должен полностью уравновесить мышцы всей грудной стенки, чтобы освободить мозг от напряжения. Мышцы и кожа на спине должны действовать слаженно, словно переплетенные между собой, как в пранаяме, так и в медитации (дхьяна).  
-  
 28 Упругость или дряблость кожи туловища указывает на эмоциональную стабильность или отсутствие ее и проявляет, достиг ли человек спокойствия и тишины ума. Если кожа верхней части грудной клетки возле ключиц опущена и провисает, человек является жертвой своих эмопий. Прочная грудная клетка - - признак устойчивости. Если грудная клетка и диафрагма не сохраняют устойчивости и деятельность кожи не скоординирована с движениями мышц спины, то и не будет ощущаться покой в дыхании. Если же они действуют согласованно, мужество входит, чтобы вдохновить ум.  
-  
 29. В искусстве сидения спина движется вперед по направлению к грудной клетке. Будьте внимательны к тому, касается ли ваша спина одежды, и если это происходит, то движение неверно, в то время как передняя часть тела должна касаться одежды (фот. 37 и 38 — неверно; фот 39 и 40 - правильно)  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnXp2p3gcLXdKnquoVWKj8fR7DYbam0jbeaU7l0AMkjBvBTbZ8vFedivnQYmKoFBpVqtg0zjVrr9XcB_aWVxIruLClODjJjimhEenusmgqZklip0aHuFKEp3Hlehpw06OOZXdz97kqbIc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE38.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnXp2p3gcLXdKnquoVWKj8fR7DYbam0jbeaU7l0AMkjBvBTbZ8vFedivnQYmKoFBpVqtg0zjVrr9XcB_aWVxIruLClODjJjimhEenusmgqZklip0aHuFKEp3Hlehpw06OOZXdz97kqbIc/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE38.jpg) |
 | Фото 37 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNCioqgTE5dyT57yPOno-A6MKnomRiGp0GnX45-fKdRrXbM6nLW_rfEFoqHpK-ZzO2IbYMsk9ykYUYL50kl6X09UxihK-XSo_RDTWW0bOakxFBwm9w4kBotUlSqheQ2aAGIKqv0kcSJ3A/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE39.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjNCioqgTE5dyT57yPOno-A6MKnomRiGp0GnX45-fKdRrXbM6nLW_rfEFoqHpK-ZzO2IbYMsk9ykYUYL50kl6X09UxihK-XSo_RDTWW0bOakxFBwm9w4kBotUlSqheQ2aAGIKqv0kcSJ3A/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE39.jpg) |
 | Фото 38 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdEGZ5Uf0-lSZV8NsAs_VV4NLPDleQgQiczx4_10SsrtMm43LyCHqy2cZyakNCfDDvsRXRlcfh6pPNRBTHMyzPbhXRL4V2662_LpZ150kPpJ3rBu1_k0J7Emqao3FT5UjOvgzQOr7kM9M/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE40.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjdEGZ5Uf0-lSZV8NsAs_VV4NLPDleQgQiczx4_10SsrtMm43LyCHqy2cZyakNCfDDvsRXRlcfh6pPNRBTHMyzPbhXRL4V2662_LpZ150kPpJ3rBu1_k0J7Emqao3FT5UjOvgzQOr7kM9M/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE40.jpg) |
 | Фото 39 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHnV2Z3XCWDsmnwlWhZhfj3_9fTunFg8F_zXx9-nc4DNJyDSXfyl_wVBZ5FighCywsh6_n1yD3WFARzpeUyRuKXxuFaTNK6K9mIh-s4-X-n25tuq5OLpId0kikCcI1NXqyRgyf7Xy4Mew/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE41.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHnV2Z3XCWDsmnwlWhZhfj3_9fTunFg8F_zXx9-nc4DNJyDSXfyl_wVBZ5FighCywsh6_n1yD3WFARzpeUyRuKXxuFaTNK6K9mIh-s4-X-n25tuq5OLpId0kikCcI1NXqyRgyf7Xy4Mew/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE41.jpg) |
 | Фото 40 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBnj7FpfQh-rbb_O24Ktt1eG5Wr00YbuFfi28QqhgdYZ2RBHvdous6AwBEvBgWAit6_-15OXzMe4J1iCAZYNU_iofe2Jj79_N99s86Mx7duUjD0E9jKzGgCQYcWHjwNzU4SmTzemkpueE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE42.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBnj7FpfQh-rbb_O24Ktt1eG5Wr00YbuFfi28QqhgdYZ2RBHvdous6AwBEvBgWAit6_-15OXzMe4J1iCAZYNU_iofe2Jj79_N99s86Mx7duUjD0E9jKzGgCQYcWHjwNzU4SmTzemkpueE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE42.jpg) |
 | Фото 41 |
-
-  
-
 |  |
 | --- |
 | Б. К. С. АЙЕНГАР |
 | Фото 42 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9Td_bzlxoaK2t3QnspqEdFedB4b5TOekIJ0vK6GyqXQmdvBYaBn6kJmsyUq2JlwHWVKQJ8LC5ghh7gG95Mo_AjUNGipTx82eNxCiE2wpqE4pg_xZOIMzk6AA4Snp6SCTDasTXSjlQ4ys/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE44.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9Td_bzlxoaK2t3QnspqEdFedB4b5TOekIJ0vK6GyqXQmdvBYaBn6kJmsyUq2JlwHWVKQJ8LC5ghh7gG95Mo_AjUNGipTx82eNxCiE2wpqE4pg_xZOIMzk6AA4Snp6SCTDasTXSjlQ4ys/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE44.jpg) |
 | Фото 43 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgRtmQFkTk4vFvepqkvy4sVl0O-c582gUnYKUZoeisUM5sT3qDXHwMdm28UgJuhE9W9Iq3sBV8ehdk6MlaKTHerktIja3h_p5uhQ4OJuU5kg-dtvosrfkcBn_JaDTzIy0LuBkm5bnfEcI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE45.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgRtmQFkTk4vFvepqkvy4sVl0O-c582gUnYKUZoeisUM5sT3qDXHwMdm28UgJuhE9W9Iq3sBV8ehdk6MlaKTHerktIja3h_p5uhQ4OJuU5kg-dtvosrfkcBn_JaDTzIy0LuBkm5bnfEcI/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE45.jpg) |
 | Фото 44 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwNKhdp5diTklvV9oFrrkhnBHsAtcBvQnUjlXjnt21UrSs0jS6nExoyoPXBoAFfDOKfI3jpcUPRQOb43n77mAb_HtV2OmmfsWexx1O-jqpShXdWNuyRAQoTWZqKfbKDi3TIELm5EvAmvE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE46.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwNKhdp5diTklvV9oFrrkhnBHsAtcBvQnUjlXjnt21UrSs0jS6nExoyoPXBoAFfDOKfI3jpcUPRQOb43n77mAb_HtV2OmmfsWexx1O-jqpShXdWNuyRAQoTWZqKfbKDi3TIELm5EvAmvE/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE46.jpg) |
 | Фото 45 |
-
-  
 30. Начинающие могут сидеть возле стены, плотно пододвинув к ней ягодицы. Основание крестца и верхушки лопаток должны касаться стены. Когда плечи касаются стены, основание крестца имеет тенденцию отодвигаться от стены (фот. 41). Если это происходит, исправьте позу (фот. 42). Расправьте лопатки. Чтобы достичь правильного положения, разместите между лопатками, точно позади грудины, кусок мыла, кусочек дерева такого же размера или маленькое свернутое полотенце (фот. 43).  
-  
 31. Судорожные движения являюся признаками утомления, потери внимания или недостатка уверенности. Если это происходит, не тратьте понапрасну времени на пранаяму, а займитесь асанами, которые развивают легкие и успокаивают нервы.  
-  
 32. Вначале приспособление тела к правильным движениям вызывает боль и дискомфорт, но со временем и регулярной практикой это проходит. Практика должна быть приостановлена на день, если боль и дискомфорт становятся жестокими и невыносимыми. Это указывает на то, что тело находится в правильном для практики пранаямы положении.  
-  
 33 Научитесь различать правильный и неправильный типы боли. Правильный тип боли возникает только во время практики пранаямы и исчезает немедленно после шавасаны. Если боль остается, это указывает на ее принадлежность к неправильному типу, и она будет продолжать беспокоить садхаку, в то время как правильный тип боли действует как настоящий друг, обучая новым способам приспособления тела к позе, постоянно формируя ум, так же как и тело.  
-
 #### Невозможность сидеть на полу
-
 34. Если из-за возраста, слабости или отсутствия выносливости сидеть на полу невозможно, допускается использование стула или табуретки. При этом, однако, держите ступни полностью на полу, бедра параллельно полу и друг другу, а голени перпендикулярно полу (фот. 44 и 45). Держите руки и ноги расслабленными и свободными от всех напряжений, следуя всем пунктам этой главы, насколько возможно.  
-
 #### Онемение ног
-
 35. Сидение в любой позе для пранаямы вызывает онемение в ногах, гак как сидение в одной и той же позе ограничивает кровоток. Однако это легко исправить Выполните шавасану в течение двух-трех минут, согнув при этом колени и держа пятки и ягодицы (фот 46). Затем выпрямьте по очереди ноги (фот. 47 и 48). Вытяните мышцы голеней, задние стороны коленей, пятки, своды стоп, носки при этом направлены вверх (фот. 49)  Оставайтесь в этом положении некоторое время, а затем опустите стопы в стороны (фот. 50). Это заставит кровь циркулировать в ногах, и онемение пройдет.  
-
 #### Руки и плечи
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHFywA9ZC9Os6KjqvY-HnzTyYj-AxRxoLq4b4CSxb6fAEq6FGf9Tyc-_AbJpCgYIdmLZGuKQFL008CmV0uLRXgUEBBSVF8Gs3gelJvABrPP-jYtYLCk1lpEuXdqSsgWUUj1-a1qRz6dVY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE47.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHFywA9ZC9Os6KjqvY-HnzTyYj-AxRxoLq4b4CSxb6fAEq6FGf9Tyc-_AbJpCgYIdmLZGuKQFL008CmV0uLRXgUEBBSVF8Gs3gelJvABrPP-jYtYLCk1lpEuXdqSsgWUUj1-a1qRz6dVY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE47.jpg) |
 | Фото 46 |
-
-  
 36. Разверните плечи в направлении от шеи в обе стороны. Опустите их насколько возможно низко от мочек ушей и держите параллельно полу. Кожа передней части подмышек обращена вверх, а спинной стороны - вниз. Плечи во время практики пра-наймы имеют тенденцию двигаться вверх, к углам. Сознательно и постоянно выверяйте их положение. Это заставляет локти быть ближе к земле и обеспечивает равномерное натяжение и длину верхней части рук спереди и сзади. Не расширяйте локти и не двигайте их в направлении плеч (фот 51 и 52)  
-  
 37 Регулирование положения предплечий и расположение пальцев на ноздрях в определенных типах нранаямы детально обсуждается в гл. 22.  
-
 #### Голова и горло
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKAotgRuLJHaAkqpA-vLrS2vhz1fqkJTNNIItsFRqDcSPQH0NjzoPGT2acixSqqmAFaSlZdhMZIew2kEOlmCrl57TtZZhyBB1htxziDJXZFOY3RGpYkDi6usQWOcFqn99eoQZav17DoEk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE48.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKAotgRuLJHaAkqpA-vLrS2vhz1fqkJTNNIItsFRqDcSPQH0NjzoPGT2acixSqqmAFaSlZdhMZIew2kEOlmCrl57TtZZhyBB1htxziDJXZFOY3RGpYkDi6usQWOcFqn99eoQZav17DoEk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE48.jpg) |
 | Фото 47 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhP6fZnusrZqloHSd8y2gphxMpSyjqERXVHki0rDMIx5fcdWQ4A0dsV8RCAzYcOBrtuYK0oxINmki2pqJ6TnGStV6Dz6hednMWRliBOJ8X6cQmzsX5_s_OQYdeNSNCFQp51917FfKR1wa8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE49.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhP6fZnusrZqloHSd8y2gphxMpSyjqERXVHki0rDMIx5fcdWQ4A0dsV8RCAzYcOBrtuYK0oxINmki2pqJ6TnGStV6Dz6hednMWRliBOJ8X6cQmzsX5_s_OQYdeNSNCFQp51917FfKR1wa8/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE49.jpg) |
 | Фото 48 |
-
-  
 38 За исключением лежачего положения, никогда не держите голову прямо, делайте  подбородочный замок, таким образом, чтобы макушка головы не поднималась, а оставалась в одном и том же положении в течение всей практики пранаямы. Это устраняет препятствия в проходах двух нади, расположенных по обе стороны переносицы. Сужение переносицы, жесткость горла и зажатость задней части шеи указывает на неверное положение головы. Чтобы исправить положение головы, освободите внутреннее напряжение горла, расслабьте область верхней губы и обратите глазные яблоки вниз.  
-  
 39  Расслабьте кожу черепа и сохраняйте пассивность нервов, мозг при этом остается спокойным я устойчивым. Никогда не напрягайте и не поднимайте кожу ни я висками. Не сжимайте губы, а держите их расслабленными, а углы губ - мягкими  
-
 #### Язык
-
 40  Держите язык пассивным и расслабленным, лежащим на нижнем небе. Следите за тем, чтобы его кончик не касался верхнего неба или зубов. Не стискивайте челюсти и не двигайте язык во время вдоха, выдоха или задержки дыхания   Если язык будет двигаться, то потечет слюна. Однако когда вы начинаете практику Пранаямы, слюна будет течь и накапливаться. Не беспокойтесь, а проглотите ее перед тем как сделать новый вдох. Если вы держите язык пассивным, слюна постепенно перестанет течь.  
-
 #### Нос
-
 41. Нос регулирует поток и звук дыхания. Держите кончик носа и переносицу направленными на грудину, не наклоняя при .этом голову в сторону. Кончик носа имеет тенденцию подниматься при вдохе, поэтому будьте внимательны и намеренно держите переносицу направленной вниз. Если переносица или кончик носа поднимаются, звук дыхания становится грубым.  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFimiVlrHYVboKQ1pAqO1Cm-L2rOK6ixTyjzHrAip1iqaLmxPwA-N_aNuiW5bQ5BD62Yz7CS32x82gEmbljHXjL-IbVjVIwuvJ2JpTPtmFdtb-2xQ4dPJOcKYfjt4CsfpvLVrz9ZU4iDk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE50.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFimiVlrHYVboKQ1pAqO1Cm-L2rOK6ixTyjzHrAip1iqaLmxPwA-N_aNuiW5bQ5BD62Yz7CS32x82gEmbljHXjL-IbVjVIwuvJ2JpTPtmFdtb-2xQ4dPJOcKYfjt4CsfpvLVrz9ZU4iDk/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE50.jpg) |
 | Фото 49 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3Qh7b0FDUonknhr6YXGrGVycDfIwajxZW4-Eutv3NC3zeJnmKvAXU66GPChHb54MXGbNDA93jZwUjWyCKEN0FO_mgeuXZ2KPVAdolbZTXrUJdaQX9Y6fe-IE2pELDQ51gOkeLEaAcGO0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE51.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3Qh7b0FDUonknhr6YXGrGVycDfIwajxZW4-Eutv3NC3zeJnmKvAXU66GPChHb54MXGbNDA93jZwUjWyCKEN0FO_mgeuXZ2KPVAdolbZTXrUJdaQX9Y6fe-IE2pELDQ51gOkeLEaAcGO0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE51.jpg) |
 | Фото 50 |
-
 #### Глаза и уши
-
 42 Глаза контролируют движения мозга, уши контролируют движения ума. Это реки, несущие мозг и ум к морю души. Пранаяму следует практиковать с закрытыми и неподвижными глазами и ушами, восприимчивыми к звуку дыхания. Мягко закройте глаза, оказывая легкое давление веками на зрачки, а нижние веки сохраняя пассивными. Глаза, таким образом, будут расслабленными. Не допускайте напряжения или пересыхания глаз. Двигайте верхние веки в направлении к наружным уголкам глаз, ослабляя таким образом всякое напряжение кожи во внутренних уголках глаз. Сохраняйте зрачки устойчивыми и на равном расстоянии от переносицы. Освободите напряжение кожи от центра лба, так как это устраняет складки между бровями и сохраняет пассивной эту область.  
-  
 43. Вначале трудно овладеть искусством сидения, так как тело бессознательно отклоняется Следовательно, время от времени нужно открывать глаза на долю секунды и проверять, не отклони лось ли тело, наклонена ли голова вниз, в сторону или держится прямо. Затем проверьте, есть ли напряжение в горле и упруга ли кожа лица, особенно вокруг висков. И в заключение, проверьте, устойчивы зрачки или «бегают». Затем утвердите тело и голову в правильном положении, расслабьте горло и сохраняйте глаза пассивными. Когда в вышеупомянутых областях расслабляются мышцы, расслабляется и кожа. Верхняя губа и ноздри влияют на работу органов чувств и внутренних органов. Расслабьте область верхней губы, так как это помогает расслабиться лицевым мышцам и мозгу. Во время практики пранаямы в сидячей позе, если кожа вокруг висков движется по направлению к ушам, это означает, что мозг находится под давлением; если же кожа движется к глазам - мозг в покое. В лежачих положениях кожа вокруг висков движется к ушам, и не к глазам.  
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7iuBf3PR5B-_bxtu4wbXcKaRmAAF1elnmSQLBaFo8I4FnHx4vGUDFNlkznsDbhNvEiKxiTfwiOtWp721X2TvUZaeXlvDT-dssEGx9133g-Z2hGrljkALT6p_thOuQkvnlL6sq6Y-wOZs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE52.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7iuBf3PR5B-_bxtu4wbXcKaRmAAF1elnmSQLBaFo8I4FnHx4vGUDFNlkznsDbhNvEiKxiTfwiOtWp721X2TvUZaeXlvDT-dssEGx9133g-Z2hGrljkALT6p_thOuQkvnlL6sq6Y-wOZs/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE52.jpg) |
 | Фото 51 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhwbLIEztEFc03lLeuyQ5EGbPIkpaYfKPXG2-MdxaSF2m9cgfhTiL9liqI6flN1olDfAW2e-Iju3y3CX0xCOWEcF0UOdMEIzaBRaiKPkfkhyphenhyphenz954T8oYg_tdGQquqHyCqpG5mxWgXpN1oY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE53.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhwbLIEztEFc03lLeuyQ5EGbPIkpaYfKPXG2-MdxaSF2m9cgfhTiL9liqI6flN1olDfAW2e-Iju3y3CX0xCOWEcF0UOdMEIzaBRaiKPkfkhyphenhyphenz954T8oYg_tdGQquqHyCqpG5mxWgXpN1oY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE53.jpg) |
 | Фото 52 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJR5u7fnBTa3h8DbpV7czONxFFAQWTs4WFOE5tlVPFr72ufSk0rWkx9ZsH6eTgibTdyjQSIPkrjd4RdPyRl-99PTQ4BRH3VUrKESEytezFlfG9VpNUQNCmTQRJZw9dxU1iPOaFfPcoJpo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE54.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJR5u7fnBTa3h8DbpV7czONxFFAQWTs4WFOE5tlVPFr72ufSk0rWkx9ZsH6eTgibTdyjQSIPkrjd4RdPyRl-99PTQ4BRH3VUrKESEytezFlfG9VpNUQNCmTQRJZw9dxU1iPOaFfPcoJpo/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE54.jpg) |
 | Фото 53 |
-
-  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigNoMoTVKxePjC2yOvN2PgqvLuCqN1Y67pZwLv_t_OM40j3Kv_2BBS1k5TundQqqO2WaDiD1bJ5jiHcKvH0ee8KhSKI4DF_kJ_sLK6Qbm78-y9XhkTJMfwzIPcqFjaSf9ztjuCoUijA50/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE55.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigNoMoTVKxePjC2yOvN2PgqvLuCqN1Y67pZwLv_t_OM40j3Kv_2BBS1k5TundQqqO2WaDiD1bJ5jiHcKvH0ee8KhSKI4DF_kJ_sLK6Qbm78-y9XhkTJMfwzIPcqFjaSf9ztjuCoUijA50/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE55.jpg) |
 | Фото 54 |
-
-  
 44. Обратите взгляд вовнутрь, как бы смотря с закрытыми глазами на что-то позади вас. Глаза могут казаться широко открытыми, хотя взгляд направлен вовнутрь (фот. 53 и 54). Зрачки стремятся двигаться вверх и вниз, когда вы вдыхаете и выдыхаете. Попытайтесь остановить это, так как движения зрачков имеют тенденцию порождать активность в мозгу.  
-  
 45. Стоит только векам опуститься, как наступает вялость; в тот момент, когда зрачки начинают «бегать», возникает возбуждение, внимание рассеивается. Если верхние веки сокращаются, мысли трепещут, подобно пламени на ветру. Ничто подобное не происходит, если полностью расслабиться.  
-  
 46.  Если ресницы не сомкнуты, мозг активен и не расслаблен. Если в надбровных дугах присутствует напряжение, то волосы в этом месте будут топорщиться, как в гневе; однако, если брови гладкие, мозг спокоен.  
-  
 47 Держите ушные отверстия на одинаковом уровне и на одинаковом расстоянии от верхушек плеч. Уши должны слушать звук дыхания и делать это на протяжении всей практики. Не сжимайте челюсти, так как это закрепощает область вокруг ушей и блокирует их, создавая ощущение тяжести и внутреннего зуда.  
-  
 48. Обратите особое внимание на точку, где каналы тонкой энергии (нади), исходящие от глаз, ушей и легких пересекаются между собой в центре мозга посередине и позади глаз. Это центр, из которого эти энергии контролируются (см. гл. 5). Это- место, где начинается контроль дыхания.  
-
 #### Мозг
-
 49. Мозг  - это компьютер и инструмент мышления. Ум имеет способность чувствовать, но такой способности нет у мозга. Так как мозг контролирует функции тела и органов чувств, его следует сохранять неподвижным. В Пранаяме он - побудительная сила, не актер, а свидетель. Легкие - - актеры, мозг - режиссер.  
-  
 50. Если сидячая поза правильна, прочна, устойчива и уравновешенна, эмоции находятся под контролем. Мозг ощущает мягкость, как будто плывет. Не ощущается напряжения и, следовательно, не происходит пустой растраты энергии Если лобная часть мозга поднята вверх, то будут ощущаться раздражение и напряжение; если голова наклонена в сторону, то другая сторона ощущает тяжесть, нарушающую равновесие.  
-  
 51. Интеллектуальные люди склонны к высокомерию. Интеллект, подобно деньгам, хороший слуга, но плохой хозяин. Практикуя пранаяму, йогин наклоняет голову низко, регулируя положение передней части черепа по отношению к задней, с тем чтобы достичь смирения и избавиться от гордости по поводу своих интеллектуальных достижений.  
-  
 52. Йогины знают, что мозг - это вместилище приобретенного объективного знания (видья), в то время как ум (манас) это место, где испытывается субъективное знание (буддхи) - Манас - это внешняя оболочка, буддхи  — содержимое Манас сосредоточен в сердечном центре, где происходит чередование эмоций.  
-  
 53 Когда и эмоции, и интеллект пребывают в тишине и не колеблются, йогин впервые испытывает покой ощущений, за которым следует покой ума. Затем приходит опыт, еще более исключительный и зрелый - опыт духовного покоя, освобождающий йогина от мирских мыслей и забот. Он становится осознающим необычайное чистое состояние бытия, тотальное осознание, то, что можно назвать божественным состоянием. В этом состоянии конечное погружается в бесконечное. Это самадхи, беспредельная цель йогина.
-
 [Предыдущая](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-Ярлыки:
-[Айенгар](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
-[Книги](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
-
-
-
-### Комментарии
-
-#### Отправить комментарий
-
-
-
-
-### Популярное
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwQNZJppOylPA9u8W-w8vAeKRHQ1n9FH_lAtccMZsFDQt1d7yQR-5H4J2GIQnw-_IKpspQ4wC2-E8vZou9cfCGm41QI1igTeeaBRhLdTrNBOByMfu2PkH03B5TbU0OtzApIoG7VEooJTA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258040.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjv4zW8Ennw6MlQ11GO0KRcYoOEFmM8UKpfROjjhi4l7YgwI-xC6_QjtnjeqyexnyARZOglkN3x35Ak9PpbT5K6hccfMooYrgSlbHVIXVeY-rNdtYRWnLbun-WFmt1EGpFjUVSK2ddrMCk/w470-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580131.jpg)](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[мая 31, 2020](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
-
-### [Глава 23. Бхастрика и Капалабхати Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDj6DCPxiPRTR7ryDtiYP4K4eIER-L49eLBIQHwWtYLtCVWPLbY_6fQbbPDtAnPUP1RkogPtUrlFnUoi4pXGfELgCX2s_l7fAfg-IV3mz7VCpQfFNcP9NG4yPM_DZwIskxnnn609e9UkA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580103.jpg)](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[декабря 15, 2019](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Яма: жизнь в истинной этике](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeih2TgsZwFwTZlwl5qQ2s9eSd_PGX2gVa08Crd86RVBX7TtZTK4LURUx903SIZKsBZkoE8oSPllnSK0hXdiDUZ3kZWfBO8_eIZqlIXI7JxRg03W3md7hGre_wtnTQADns9VAT7fVo1W8/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258042.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Предисловие](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEics-yGyF1DgefmaFzIDk5sU1EFMQkc80CUL4o0Xwp1R3jNcUFbwQgm39YfGBn5QntT1pt4tMhjKzHmvoqWP84iYawdRTWybTlDyXCYWxeBKfktP2x35MyhQidK62PQSVl7fqLfZKXNK_o/w640-h480/%25D0%25BF%25D1%2580%25D0%25B8%25D0%25B5%25D0%25BC.jpg)](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[июня 26, 2021](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html "permanent link")
-
-### [Практика управления энергией](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJB581G6jtNG9NVYFbJhUhTS7hqvpIVOw9573vmlwZruHTcdH1AqjepBtJbC3VKPqaeBEfrywelVgssoXCyo5f-O9cqReRmUJA5kmPzILLLwRYbZyiCLITadzHK_fW8C_9nzCTBa7AL7I/w520-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580100.jpg)](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[июня 30, 2020](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
-
-### [Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg)](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[апреля 12, 2020](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html "permanent link")
-
-### [Глава 18. Вритти Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-AK9Kma-1OZuppty8bf9BEFTHogzNQWgcg3T0RvzlLOWcdAWP5voLqtqVL7QSMVuXB_TV6KFfTAiRHrsoIc_7gnLEpJ-1zCUQXcVXmGm2Qde3vOJxrt0Nw81u-VegkqKfUzz1jD3E9Nk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258035.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[октября 28, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html "permanent link")
-
-### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/w640-h360/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[октября 21, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html "permanent link")
-
-### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf3iVPaTmQFxmU90EoWD2NA0cnYFx86rnYT772qNCeWkSJ0WW9ZwIxCiFNmyjcfgpyBYUoX3aJTZTmv7xJ9G1rcnRiRe1bhawAAmuOMUC_B-cpDtI2ai7OAG5J-zH0jXyObpEq-XVFlY0/s1600/%25D0%259D%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F+%25D0%25B9%25D0%25BE%25D0%25B3%25D0%25B0.jpg)](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 07, 2019](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html "permanent link")
-
-### [Авторы книг и статей по йоге](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html#comments)
-
-
-
-
-Мы в: [Google](https://groups.google.com/forum/#!forum/novaya-joga), [Facebook](https://www.facebook.com/groups/novjoga), [ВКонтакте](https://vk.com/novjoga), [Одноклассники](https://ok.ru/group/61505827700782), [ЯМессенджер](https://yandex.ru/chat/#/join/d80360cc-d14d-472c-9a20-76de83e80978)
-
-[Политика конфиденциальности](http://partnerstvo.blagorussia.ru/politika-konfidencialnosti)
-
-![](https://mc.yandex.ru/watch/55844950)
-
-
-
-
-
-![Top.Mail.Ru](https://top-fwz1.mail.ru/counter?id=3147670;js=na)
-
-[Технологии Blogger](https://www.blogger.com)
-
-Автор изображений для темы: [ImagesbyTrista](http://partnerstvo.blagorussia.ru)
-
-@ 2019 - 2025 года
-
-
-
-
-
-### Перевести - Translate
-
-### Разделы
-
-* [Айенгар144](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
-* [Асаны1](https://joga.blagorussia.ru/search/label/%D0%90%D1%81%D0%B0%D0%BD%D1%8B)
-* [Книги150](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
-* [Словарь2](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BB%D0%BE%D0%B2%D0%B0%D1%80%D1%8C)
-* [Списки5](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BF%D0%B8%D1%81%D0%BA%D0%B8)
-* [Шри Ауробиндо6](https://joga.blagorussia.ru/search/label/%D0%A8%D1%80%D0%B8%20%D0%90%D1%83%D1%80%D0%BE%D0%B1%D0%B8%D0%BD%D0%B4%D0%BE)
-* [Энергия1](https://joga.blagorussia.ru/search/label/%D0%AD%D0%BD%D0%B5%D1%80%D0%B3%D0%B8%D1%8F)
-
-* [Группа Google](https://groups.google.com/g/novaya-joga)
-
-### Одноклассники
-
-### ВКонтакте
-
-### Нас прочитали
-
-## Подписаны
-
-### Последнее
-
-[Загрузка...](https://joga.blagorussia.ru/feeds/posts/default)
-
-### [Сообщить о нарушении](https://www.blogger.com/go/report-abuse)
-
-### Архив
-
-* [июня 20211](https://joga.blagorussia.ru/2021/06/)
-* [июня 20209](https://joga.blagorussia.ru/2020/06/)
-* [мая 20205](https://joga.blagorussia.ru/2020/05/)
-* [апреля 20202](https://joga.blagorussia.ru/2020/04/)
-* [марта 20207](https://joga.blagorussia.ru/2020/03/)
-* [февраля 20206](https://joga.blagorussia.ru/2020/02/)
-* [января 20205](https://joga.blagorussia.ru/2020/01/)
-* [декабря 201936](https://joga.blagorussia.ru/2019/12/)
-* [ноября 201943](https://joga.blagorussia.ru/2019/11/)
-* [октября 201938](https://joga.blagorussia.ru/2019/10/)

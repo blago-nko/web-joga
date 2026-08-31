@@ -5,457 +5,72 @@ aliases:
   - "/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
-
 [Предыдущая](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-16-klassifikaciya-sadhak-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
 ## Глава 15. Искусство задержки дыхания (Куллбхака)
-
 1. Кумбхака означает кувшин, который может быть и полон, и пуст. Кумбхака бывает двух видов. Это пауза: а) между вдохом и выдохом и 6) между выдохом и вдохом. Это — искусство удержания дыхания в состоянии приостановки.  
-  
 2. Кумбхака также означает отвлечение интеллекта от органов восприятия и действия, с тем чтобы сосредоточить его на местопребывании Атмана (пуруши), источника сознания. Кумбхака удерживает садхаку в состоянии молчания на физическом, моральном, ментальном и духовном уровнях.  
-  
 3. Удерживание дыхания в кумбхаке не следует ошибочно интерпретировать как новое усилие мозга, нервов и тела, предпринятое с целью задержать дыхание. Новое усилие ведет к сверхнапряжению. Кумбхаку следует выполнять с расслабленным умом, оживляя таким образом нервную систему.  
-  
 4. Когда в кумбхаке успокоено дыхание, успокаиваются и чувства, а ум становится молчаливым. Дыхание — это мост между телом, чувствами и умом.  
-  
 5. Кумбхаки выполняются двумя способами: сахита и кевала. Когда дыхание удерживается намеренно и обдуманно — это сахита. Сахита кумбхака — это пауза в дыхании: а) после полного вдоха перед начинающимся выдохом (антара или пурака кумбхака) или б) после полного выдоха, предшествующая вдоху (бахья или речака кумбхака). Кевала означает «самопроизвольно» или «абсолютно». Кевала кумбхака — пауза в дыхании безотносительно к пураке или речаке, подобная тому, когда художник всецело поглощен своим искусством или поклоняющийся затаил дыхание в обожании своего предмета Этому состоянию часто предшествует дрожь в теле и боязнь, подобные ощущениям, переполняющим человека, который столкнулся с неведомым. Терпение и упорство превозмогут эти ощущения   Кевала кумбхака инстинктивна и интуитивна. В этом состоянии человек полностью поглощен объектом своего поклонения и изолирован от мира, испытывая ощущение блаженства и покоя, превосходящее понимание. Индивидуальность созвучна с Бесконечным (Хатха-Йога Прадипиха, II, 71).  
-  
 6. Антара кумбхака — это удерживание Господа в форме космической, или универсальной, энергии, которая погружена в индивидуальную энергию. Это — состояние, где Господь (Параматма) соединен с индивидуальной душой (дживатма).  
-  
 7. Бахья кумбхака — это состояние, в котором йогин отдает саму свою самость в форме дыхания Господу и погружается в Дыхание Вселенной. Это — самая благородная форма\* самоотдачи, когда личность йогина полностью погружена в Господа.  
-  
 8. В Бхагавад-Гите (IV, 29/30) Кришна объясняет Арджуне различные виды жертвоприношений (яджна) и йог. Кумбхака пранаяма — одна из этих яджней и подразделяется на три категории: вдох — задержка, выдох — задержка (обе относятся к сахита кумбхаке) и абсолютная задержка (кевала кумбхака). Тело йогина — это жертвенный алтарь, входящий поток дыхания (пурака) — это жертва и исходящий поток (речака) — огонь. Кумбхака — это момент, когда жертва пураки поглощается огнем речаки и жертва и пламя становятся единым. Йогин приобретает знание, связанное с контролем дыхания (пранаяма видья). Верхняя часть торса (грудной клетки) — местопребывание входящего дыхания (прана), а нижняя часть служит местопребыванием исходящего дыхания (апана). Когда оба объединяются в акте притяжения дыхания, это состояние зовется пурака кумбхака. Когда апана входит в контакт с праной и истекает наружу вместе с выдохом, возникает состояние пустоты — это речака кумбхака. Впитывая это знание через опыт, йогин делает Пранаяма видью частью своей мудрости (буддхи), которой он в конечном итоге предлагает свои знания, свою мудрость, само дыхание своей жизни и свою самость как жертвоприношение (Атмахути). Это — состояние кевала кумбхаки, или абсолютной сдачи, в котором йогин поглощен обожанием Господа.  
-  
 9. Как мать охраняет свое дитя от каждого несчастного случая, так сознание (читта) охраняет тело и дыхание. Позвоночник и туловище активны и подвижны, подобно ребенку, а читта бдительна и охраняет, подобно матери  
-  
 10. В кумбхаке вибрация в теле подобна вибрации неподвижного локомотива, выпускающего пары; его водитель алертен и готов начать движение, но расслаблен. Аналогично, прана вибрирует в туловище, но читта сохраняется расслабленной и готовой позволить дыханию выйти или войти.  
-  
 11. Чувствительность, сжатие или растяжение кожи туловища подобны дисциплинированному ребенку, который одновременно отважен и осторожен.  
-  
 12. Продолжительность задержки дыхания можно сравнить с сигналами дорожного движения. Если кто-то поедет на красный свет, может произойти несчастный случай. Так же и в кумбхаке, если кто-либо перешагнет предел своих возможностей, будет повреждена нервная система. Напряжение в теле и мозгу указывает на то, что читта не может удерживать прану в кумбхаке.  
-  
 13. Не задерживайте дыхание усилием или волей. В момент, когда мозг становится напряженным, во внутреннем ухе возникает тяжесть, глаза краснеют, устают и чувствуют раздражение, человек превышает свои возможности. Следите за этими предостерегающими знаками, которые указывают на близость опасной точки.  
-  
 14. Цель кумбхаки — удержать дыхание. Когда дыхание задерживается, речь, восприятие и слух находятся под контролем. Читта в этом состоянии свободна от страсти и ненависти, зависти и похоти, гордости и злобы. Прана и читта становятся едиными в кумбхаке.  
-  
 15. Кумбхака — это толчок, выявляющий спящую в нашем теле божественность, местопребывание Атмана.  
-
 ### Техника Антара Кумбхаки
-
 a) Не пытайтесь задержать дыхание после вдоха (антара кумбхака) до тех пор пока не овладели техникой глубоких вдоха и выдоха (пурака и речака). Не пытайтесь задерживать дыхание после выдоха (бахья кумбхака), пока не овладеете антара кумбхакой.  
-  
 b)  Овладение означает артистическое регулирование путем упорядоченного усовершенствования и контроля дыхательных движений. Уравняйте длительность вдоха и выдоха перед тем как приступить к практике кумбхаки. Внимательно прочитайте гл. 13 о бандхах перед тем как начать кумбхаку.  
-  
 c)  Изучайте антара кумбхаку постепенно. Начинайте с удерживания дыхания лишь на несколько секунд, не теряя сжатия внутренних мышц. Наблюдайте за состоянием тела, нервов и ума Потребуется определенное время, прежде чем вы сможете понимать, испытывать и удерживать надлежащим образом внутреннее сжатие межреберных мышц и диафрагмы в кумбхаке.
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBJDVqKDwHdsxXekT5qDfE_xh5CP1qILvgsKn-LoM4po-85i2p9rRWOvBipJz_CTOqQryuA9mh0wjbqEAGjlo-cbT7oTqCSSQBIUI2Q-588Zx_BIi_n43g4UdnlV42pqfeb5ffaNFjB90/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE77.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBJDVqKDwHdsxXekT5qDfE_xh5CP1qILvgsKn-LoM4po-85i2p9rRWOvBipJz_CTOqQryuA9mh0wjbqEAGjlo-cbT7oTqCSSQBIUI2Q-588Zx_BIi_n43g4UdnlV42pqfeb5ffaNFjB90/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE77.jpg) |
 | Фото 77 |
-
-  
 d) Начиная изучать внутреннюю задержку (антара кумбхака), позвольте себе немного отдохнуть после каждой кумбхаки. Это даст легким возможность вернуться в нормальное, естественное и свежее состояние перед выполнением следующей кумбхаки. Например, за одним циклом кумбхаки должны следовать три или четыре цикла глубокого или нормального дыхания, пока не завершите полный цикл.  
-  
 e) Если начинающий выполняет внутреннюю задержку после каждого вдоха, это вызовет напряжение в легких и мозгу и перегрузку в нервной системе; прогресс будет исключительно медленным.  
-  
 f) По мере усовершенствования укорачивайте интервалы между циклами нормального дыхания и антара кумбхакой.  
-  
 g) Увеличивайте продолжительность задержки дыхания в антара кумбхаке, не превышая своих возможностей.  
-
 |  |
 | --- |
-| [Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs0aN3fk9jMWIJqczaAKHR3S5clqrjUmpW8oYgQJjEAyUDERvRMwZTGcKea3cUdwh3Lv2povUxrruvwshc3jHCzTnMCrQPo7RNLDbqhUfxPYmfTYnlEI1mCEdmGYpRcAl1iBYNGLNYGgY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE78.jpg) |
+| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhs0aN3fk9jMWIJqczaAKHR3S5clqrjUmpW8oYgQJjEAyUDERvRMwZTGcKea3cUdwh3Lv2povUxrruvwshc3jHCzTnMCrQPo7RNLDbqhUfxPYmfTYnlEI1mCEdmGYpRcAl1iBYNGLNYGgY/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE78.jpg) |
 | Фото 78 |
-
-  
  h) Если ритм вдоха и выдоха нарушен удерживанием дыхания, это указывает на то, что вы превысили ваши возможности; следовательно, уменьшите длительность внутренней задержки. Если ритм не нарушен, это свидетельствует о правильности выполнения.  
-  
 i) Знание бандх существенно для правильной практики кумбхаки. Они действуют, как предохранительные клапаны для распространения, регуляции и абсорбции энергии, и предотвращают ее рассеяние. Электрический мотор сгорает, если напряжение слишком высоко. Аналогично, когда легкие наполнены и энергия в них не контролируется бандхами, они будут повреждены, нервы — истощены, и мозг будет порождать избыточное напряжение. Всего этого не происходит, если практиковать джаландхара бандху.  
-  
 j) Никогда не делайте антара кумбхаку стоя, так как можете потерять равновесие и упасть.  
-  
 k) Если вы выполняете пранаяму лежа, положите под голову подушку, чтобы держать ее выше туловища, и не испытывать в ней напряжения (фот. 77).  
-  
 l) Начинающим нужно обратить внимание на уддийяна бандху и мула бандху, пока они не овладеют ритмом дыхания. Подвижные ученики должны делать все бандхи после овладения ими индивидуально, задерживая дыхание.  
-  
 т) Не поднимайте переносицу во время внутренней задержки. Если она поднимется, мозг в этот момент заблокирован, он не может наблюдать за туловищем (фот. 78).  
-  
 n) На протяжении всей практики Пранаямы наклоняйте голову и шейный отдел позвоночника вперед и вниз и держите спинной отдел позвоночника и грудину прямо (фот, 76). Это помогает мозгу и шейному отделу спинного мозга двигаться вперед к грудине и расслабить лоб. Это заставляет энергию мозга спускаться к Самости.  
-  
 о) На протяжении каждой внутренней задержки сохраняйте прочное сжатие диафрагмы и абдоминальных органов. Существует тенденция, непроизвольная или намеренная, сжимать и расслаблять их с тем чтобы подольше задержать дыхание. Избегайте этого, так как это рассеивает энергию.  
-  
 р) Если в легких или сердце ощущается напряжение, выдохните и сделайте несколько нормальных или глубоких дыханий.  
-  
 Это освежит легкие перед тем как снова начать ангара кумбхаку. Если, почувствовав напряжение, вы будете продолжать занятия, вы расстроите гармоничную работу тела и ума„ Это ведет к умственной неуравновешенности.  
-  
 q) Когда вы сможете удерживать дыхание во внутренней задержке по меньшей мере десять-пятнадцать секунд, можно ввести мула бандху. В начальной стадии выполняйте мула бандху в конце вдоха и сохраняйте ее на протяжении всей задержки.  
-  
 r) Во внутренней задержке подтяните органы брюшной полости внутрь и вверх и одновременно подайте вперед нижнюю часть позвоночника (фот. 69). Держите туловище прочно, а голову, руки и ноги расслабленными на протяжении всей задержки.  
-  
 s) Сохраняйте позвоночник поднятым на всем протяжении от крестцово-поясничной области и основания печени и желудка.  
-  
 t) Продвигайте внешнюю и внутреннюю части позвоночника вперед и вверх ритмично и равномерно. По мере того как позвоночник движется вперед, стремитесь подтянуть кожу на нем в направлении торса.  
-  
 u) Если кожа грудной клетки провисает на ребрах, это указывает на то, что происходит бессознательная утечка дыхания из легких.  
-  
 v) He растягивайте слишком сильно грудную клетку, но и не позволяйте ей становиться впалой. Поднимите ее равномерно спереди, сзади и с обеих сторон. Сохраняйте внутренний каркас ребер прочным, а внешнюю часть тела - легкой. Это уравновесит тело и увеличит продолжительность кумбхаки.  
-  
 w) Следите за тем, чтобы спинные и фронтальные части межреберных мышц, а также внутренние и наружные плоские мышцы двигались независимо и единообразно  
-  
  х) Отрегулируйте правильное положение кожи подмышек от спинной до передней сторон. Не сдавливайте кожу вокруг подмышек на груди, а поднимите ее вверх. Если кожа подмышек или плеч движется вверх, это указывает на присутствие напряжения. Расслабьте и опустите ее.  
-  
 у) В конце вдоха (пурака) и начале задержки (кумбхака) садхака испытывает проблеск божественности. Он ощущает единство тела, дыхания и самости. В этом состоянии не существует осознания текучести времени. Садхака испытывает свободу от причины и результата. Ему следует удерживать это состояние на протяжении всей кумбхаки.  
-  
 z) Жидкое содержимое хорошо запечатанной бутылки не выльется, даже если ее трясти. Жизненная энергия садхаки не ускользнет, если кумбхака выполняется вместе с бандхами. Тело запечатано в своем основании сокращением ануса и промежности и поднятием их вверх от Муладхары. Тогда садхака становится полон мощи (теджас) и славы (оджас).  
-
 ### Техника Бахья Кумбхаки
-
 а) Бахья кумбхака (задержка дыхания после полного выдоха) бывает двух видов: «задумчивая» и динамическая. Первая практикуется без уддийяны. Она выполняется для того, чтобы сохранять спокойствие садхаки, и ее можно практиковать в любое время, даже после еды. Динамическая бахья кумбхака выполняется с уддийяна бандхой, которая массирует абдоминальные органы и сердце и предотвращает рассеяние энергии.  
-  
 b) Начинайте с практики циклов «задумчивой» внешней задержки. Затем концентрируйтесь на внешней задержке с уддийяна бандхой.  
-  
 c)  Вначале после каждой динамической внешней задержки должно пройти некоторое время для того, чтобы легкие и абдоминальные органы пришли в норму.  
-  
 d) Внешнюю задержку с уддийяна бандхой никогда не следует выполнять с усилием. Усилие затрудняет дыхание, теряется тонус абдоминальных органов и ощущается сухость в легких.  
-  
 e)  Начинайте внешнюю задержку с уддийяной очень постепенно и поддерживайте сжатие уддийяны одинаково долго в каждом цикле. Делайте по шесть-восемь циклов в день.  
-  
 f) Делайте несколько циклов нормального или глубокого дыхания и одну внешнюю задержку с уддийяной. Например, за тремя или четырьмя циклами нормального дыхания может следовать одна внешняя задержка с уддийяной. Повторяйте эту последовательность, уменьшая число циклов нормального дыхания по мере того как практикой приобретается стабильность.  
-  
 g) Во время практики следуйте техникам, данным в пунктах b, d, e, f, h, I, m, p, s, t, u и w техники антара кумбхаки, заменяя «антара кумбхака» на «бахья кумбхака».  
-  
 h) Как человек использует пинцет, чтобы удалить занозу, и сразу ощущает освобождение от боли, используйте разум как пинцет, чтобы устранить ненужные зажимы и движения, которые как занозы в практике  
-  
 i) Как веки действуют инстинктивно, чтобы предотвратить попадание инородного тела в глаз, так и садхаке следует быть всегда бдительным, чтобы предотвратить ненужные зажимы, движения и привычки, попадающие в его практику Пранаямы.  
-  
 j) Кумбхака, в результате которой лицо краснеет, возникает жжение в глазах и раздражение, выполняется неправильно. Никогда не делайте кумбхаку с открытыми глазами. Не выполняйте ее также, если у вас неполадки с сердцем или грудной клеткой или если вы плохо себя чувствуете.  
-  
 k) Тело - это королевство. Кожа граница. Его правитель Атман, чей всевидящий глаз (джнана чакшу) видит каждый нюанс во время Пранаямы,  
-  
 l) Горные потоки смещают скалы и вымывают каньоны, однако там, где энергия падающей воды успокоена и уравновешена энергией скал, каждая из них утрачивает свою отдельность. В результате возникает озеро, отражающее спокойную красоту окружающих гор. Эмоции это потоки, а устойчивый, спокойный разум образует скалу. В кумбхаке эмоции и разум уравновешены, и душа отражена в своем первозданном чистом состоянии.  
-  
 m) Сознание (читга) колеблется вместе с дыханием, в то время как кумбхака успокаивает его и освобождает от желаний. Тучи расходятся и самость сияет, подобно солнцу.  
-  
 n) После практики Пранаямы и кумбхаки расслабьтесь в шавасане (см. [гл. 30](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)),  
-
 [Предыдущая](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/glava-16-klassifikaciya-sadhak-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-Ярлыки:
-[Айенгар](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
-[Книги](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
-
-
-
-### Комментарии
-
-#### Отправить комментарий
-
-
-
-
-### Популярное
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwQNZJppOylPA9u8W-w8vAeKRHQ1n9FH_lAtccMZsFDQt1d7yQR-5H4J2GIQnw-_IKpspQ4wC2-E8vZou9cfCGm41QI1igTeeaBRhLdTrNBOByMfu2PkH03B5TbU0OtzApIoG7VEooJTA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258040.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjv4zW8Ennw6MlQ11GO0KRcYoOEFmM8UKpfROjjhi4l7YgwI-xC6_QjtnjeqyexnyARZOglkN3x35Ak9PpbT5K6hccfMooYrgSlbHVIXVeY-rNdtYRWnLbun-WFmt1EGpFjUVSK2ddrMCk/w470-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580131.jpg)](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[мая 31, 2020](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
-
-### [Глава 23. Бхастрика и Капалабхати Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDj6DCPxiPRTR7ryDtiYP4K4eIER-L49eLBIQHwWtYLtCVWPLbY_6fQbbPDtAnPUP1RkogPtUrlFnUoi4pXGfELgCX2s_l7fAfg-IV3mz7VCpQfFNcP9NG4yPM_DZwIskxnnn609e9UkA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580103.jpg)](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[декабря 15, 2019](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Яма: жизнь в истинной этике](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-yama-zhizn-v-istinnoj-ehtike.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeih2TgsZwFwTZlwl5qQ2s9eSd_PGX2gVa08Crd86RVBX7TtZTK4LURUx903SIZKsBZkoE8oSPllnSK0hXdiDUZ3kZWfBO8_eIZqlIXI7JxRg03W3md7hGre_wtnTQADns9VAT7fVo1W8/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258042.jpg)](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 16, 2019](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html "permanent link")
-
-### [Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Предисловие](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-predislovie.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEics-yGyF1DgefmaFzIDk5sU1EFMQkc80CUL4o0Xwp1R3jNcUFbwQgm39YfGBn5QntT1pt4tMhjKzHmvoqWP84iYawdRTWybTlDyXCYWxeBKfktP2x35MyhQidK62PQSVl7fqLfZKXNK_o/w640-h480/%25D0%25BF%25D1%2580%25D0%25B8%25D0%25B5%25D0%25BC.jpg)](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[июня 26, 2021](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html "permanent link")
-
-### [Практика управления энергией](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2021/06/praktika-upravleniem-ehnergiej.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJB581G6jtNG9NVYFbJhUhTS7hqvpIVOw9573vmlwZruHTcdH1AqjepBtJbC3VKPqaeBEfrywelVgssoXCyo5f-O9cqReRmUJA5kmPzILLLwRYbZyiCLITadzHK_fW8C_9nzCTBa7AL7I/w520-h640/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580100.jpg)](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[июня 30, 2020](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html "permanent link")
-
-### [Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg)](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[апреля 12, 2020](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html "permanent link")
-
-### [Глава 18. Вритти Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-AK9Kma-1OZuppty8bf9BEFTHogzNQWgcg3T0RvzlLOWcdAWP5voLqtqVL7QSMVuXB_TV6KFfTAiRHrsoIc_7gnLEpJ-1zCUQXcVXmGm2Qde3vOJxrt0Nw81u-VegkqKfUzz1jD3E9Nk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258035.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[октября 28, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html "permanent link")
-
-### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-glossarij.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/w640-h360/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg)](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[октября 21, 2019](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html "permanent link")
-
-### [ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html#comments)
-
-[![Изображение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf3iVPaTmQFxmU90EoWD2NA0cnYFx86rnYT772qNCeWkSJ0WW9ZwIxCiFNmyjcfgpyBYUoX3aJTZTmv7xJ9G1rcnRiRe1bhawAAmuOMUC_B-cpDtI2ai7OAG5J-zH0jXyObpEq-XVFlY0/s1600/%25D0%259D%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F+%25D0%25B9%25D0%25BE%25D0%25B3%25D0%25B0.jpg)](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
-
-Автор:
-
-
-[Александр Бобров](https://www.blogger.com/profile/03771662766477114754 "author profile")
-
-
-[ноября 07, 2019](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html "permanent link")
-
-### [Авторы книг и статей по йоге](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html)
-
-Поделиться
-
-* Получить ссылку
-* Facebook
-* X
-* Pinterest
-* Электронная почта
-* Другие приложения
-
-[Отправить комментарий](https://joga.blagorussia.ru/2019/11/avtory-knig-i-statej-po-joge.html#comments)
-
-
-
-
-Мы в: [Google](https://groups.google.com/forum/#!forum/novaya-joga), [Facebook](https://www.facebook.com/groups/novjoga), [ВКонтакте](https://vk.com/novjoga), [Одноклассники](https://ok.ru/group/61505827700782), [ЯМессенджер](https://yandex.ru/chat/#/join/d80360cc-d14d-472c-9a20-76de83e80978)
-
-[Политика конфиденциальности](http://partnerstvo.blagorussia.ru/politika-konfidencialnosti)
-
-![](https://mc.yandex.ru/watch/55844950)
-
-
-
-
-
-![Top.Mail.Ru](https://top-fwz1.mail.ru/counter?id=3147670;js=na)
-
-[Технологии Blogger](https://www.blogger.com)
-
-Автор изображений для темы: [ImagesbyTrista](http://partnerstvo.blagorussia.ru)
-
-@ 2019 - 2025 года
-
-
-
-
-
-### Перевести - Translate
-
-### Разделы
-
-* [Айенгар144](https://joga.blagorussia.ru/search/label/%D0%90%D0%B9%D0%B5%D0%BD%D0%B3%D0%B0%D1%80)
-* [Асаны1](https://joga.blagorussia.ru/search/label/%D0%90%D1%81%D0%B0%D0%BD%D1%8B)
-* [Книги150](https://joga.blagorussia.ru/search/label/%D0%9A%D0%BD%D0%B8%D0%B3%D0%B8)
-* [Словарь2](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BB%D0%BE%D0%B2%D0%B0%D1%80%D1%8C)
-* [Списки5](https://joga.blagorussia.ru/search/label/%D0%A1%D0%BF%D0%B8%D1%81%D0%BA%D0%B8)
-* [Шри Ауробиндо6](https://joga.blagorussia.ru/search/label/%D0%A8%D1%80%D0%B8%20%D0%90%D1%83%D1%80%D0%BE%D0%B1%D0%B8%D0%BD%D0%B4%D0%BE)
-* [Энергия1](https://joga.blagorussia.ru/search/label/%D0%AD%D0%BD%D0%B5%D1%80%D0%B3%D0%B8%D1%8F)
-
-* [Группа Google](https://groups.google.com/g/novaya-joga)
-
-### Одноклассники
-
-### ВКонтакте
-
-### Нас прочитали
-
-## Подписаны
-
-### Последнее
-
-[Загрузка...](https://joga.blagorussia.ru/feeds/posts/default)
-
-### [Сообщить о нарушении](https://www.blogger.com/go/report-abuse)
-
-### Архив
-
-* [июня 20211](https://joga.blagorussia.ru/2021/06/)
-* [июня 20209](https://joga.blagorussia.ru/2020/06/)
-* [мая 20205](https://joga.blagorussia.ru/2020/05/)
-* [апреля 20202](https://joga.blagorussia.ru/2020/04/)
-* [марта 20207](https://joga.blagorussia.ru/2020/03/)
-* [февраля 20206](https://joga.blagorussia.ru/2020/02/)
-* [января 20205](https://joga.blagorussia.ru/2020/01/)
-* [декабря 201936](https://joga.blagorussia.ru/2019/12/)
-* [ноября 201943](https://joga.blagorussia.ru/2019/11/)
-* [октября 201938](https://joga.blagorussia.ru/2019/10/)
