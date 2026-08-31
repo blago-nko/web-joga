@@ -53,6 +53,6 @@ url: "/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Б. К. С Айенгар
 
-[Предыдущая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdN-2XZX178JDd6U5EEGy5tc7IH-0kciBpirqnFGgcDtsmLc6W7znOcEW9-nl3PSSJZeB_diiC39DPGfhsPNprQmmFhMSVh-7UVj9E03X5TASEU3u237CBPCLCrWRLzpCzF367jdiY9lk/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580118.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdN-2XZX178JDd6U5EEGy5tc7IH-0kciBpirqnFGgcDtsmLc6W7znOcEW9-nl3PSSJZeB_diiC39DPGfhsPNprQmmFhMSVh-7UVj9E03X5TASEU3u237CBPCLCrWRLzpCzF367jdiY9lk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580118.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">

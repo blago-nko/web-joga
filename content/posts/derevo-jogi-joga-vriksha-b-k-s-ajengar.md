@@ -5,7 +5,7 @@ aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html"
 url: "/derevo-jogi-joga-vriksha-b-k-s-ajengar/"
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/w640-h360-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg" alt="Беллур Кришнамачар Сундарараджа Айенгар" title="Беллур Кришнамачар Сундарараджа Айенгар"><figcaption>Беллур Кришнамачар Сундарараджа Айенгар</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg" alt="Беллур Кришнамачар Сундарараджа Айенгар" title="Беллур Кришнамачар Сундарараджа Айенгар"><figcaption>Беллур Кришнамачар Сундарараджа Айенгар</figcaption></figure>
 
 ## 
 

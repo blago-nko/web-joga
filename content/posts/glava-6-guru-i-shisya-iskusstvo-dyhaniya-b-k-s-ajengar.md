@@ -7,7 +7,7 @@ url: "/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/02/glava-5-nadi-i-chakry-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKZs3qjJx6Te4NF1pDGKcrAdCuJVfwd3sP2l_rpJQbj1qSGAjcfeaV8aCfpMcQ55x3RaTqbBJrBh4NYUftqiLWlBuuiIPkCw1lLYq0dM3MMD2dC7HmhHBBtKvnXipyeCd_353LRxXmA8M/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580123.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKZs3qjJx6Te4NF1pDGKcrAdCuJVfwd3sP2l_rpJQbj1qSGAjcfeaV8aCfpMcQ55x3RaTqbBJrBh4NYUftqiLWlBuuiIPkCw1lLYq0dM3MMD2dC7HmhHBBtKvnXipyeCd_353LRxXmA8M/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580123.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ### 
 
@@ -33,4 +33,4 @@ url: "/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 8. Духовная практика (садхана) не имеет ничего общего с теоретическим обучением, но ведет к новому образу жизни. Подобно тому как сезамовое семя нужно раздавить, чтобы получить масло, и дерево должно загореться, чтобы обнаружилось его скрытое тепло, так и ученик должен придерживаться прямого пути в своей практике, чтобы высвободить скрытые в нем знания и найти свою сущность. Когда он осознает, что он есть искра Божественного Пламени, пылающего во Вселенной, все его прошлые впечатления (самскара) разрушатся и он достигает просветления. Настал его черед — он стал гуру.
 
-[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-5-nadi-i-chakry-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-5-nadi-i-chakry-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html)

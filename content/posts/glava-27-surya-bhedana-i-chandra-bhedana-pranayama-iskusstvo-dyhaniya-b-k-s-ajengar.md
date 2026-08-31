@@ -47,7 +47,7 @@ url: "/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k
 
 1. Сядьте в любую асану, следуя технике пунктов 1 — 7 удджайи, ступень V. Глубоко выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните через правую ноздрю, медленно, глубоко и полностью, следуя технике пунктов 2, 3 и 4 ступени 1 ([фот. 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
+2.  Вдохните через правую ноздрю, медленно, глубоко и полностью, следуя технике пунктов 2, 3 и 4 ступени 1 ([фот. 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
 3. Закройте обе ноздри и выполните внутреннюю задержку с мула бандхой на пятнадцать-двадцать секунд ([фот 145](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)), не допуская утечки воздуха. Постепенно увеличивайте продолжительность вдоха до пяти секунд. Когда это станет устойчивым без нарушения потока и плавности вдоха и выдоха, увеличивайте продолжительность задержки. Таким образом садхака приучается достигать максимума своих возможностей.
 
@@ -83,7 +83,7 @@ url: "/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k
 
 2. Вдохните, следуя технике, описанной в пунктах 2 и 3 ступени II ([фот 145](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)) завершив вдох муллоандхой ([фот 145](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXJRAOlD38r6lke4HBwRen2wB1m-HYjDQAEALlP0T5WghogNliuQZ1xrSP4lM2JbWi9KBW0z3sTJGGbkyZlryZ8xWsq4lFIFopkOfeRjHHQ98nQz5pZJJfbfUElPj3R53z0NujlJIKzNU/w481-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE146.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 146</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXJRAOlD38r6lke4HBwRen2wB1m-HYjDQAEALlP0T5WghogNliuQZ1xrSP4lM2JbWi9KBW0z3sTJGGbkyZlryZ8xWsq4lFIFopkOfeRjHHQ98nQz5pZJJfbfUElPj3R53z0NujlJIKzNU/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE146.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 146</figcaption></figure>
 
 3. Затем выдохните, следуя технике данной в пунктах 3 и 4 ступени III ([фот 112](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)) завершив выдох уддийяна башцхой (фот 146).
 
@@ -117,47 +117,47 @@ url: "/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k
 
 2. Если хрящ носовой кости искривлен, научитесь манипулировать хрящом перегородки вверх по направлению к носовой кости. Со временем закрытый проход откроется и пальцевая пранаяма станет возможной ([фот. 140 и 141](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
-3.  Никогда не выполняйте сурья бхедана и чандра бхедана пранаяму в один и тот же день.
+3.  Никогда не выполняйте сурья бхедана и чандра бхедана пранаяму в один и тот же день.
 
 4. В обе пранаямы можно включить прерывистое дыхание (вилома), доводя число возможных ступеней до шестнадцати. Однако возможное число перестановок и комбинаций очень велико:
 
-Ступень V: Прерывистый вдох, долгий выдох. 
+Ступень V: Прерывистый вдох, долгий выдох. 
 
-VI: Долгий вдох, прерывистый выдох. 
+VI: Долгий вдох, прерывистый выдох. 
 
-VII; Прерывистый вдох, прерывистый выдох. 
+VII; Прерывистый вдох, прерывистый выдох. 
 
-VIII; Прерывистый вдох, внутренняя задержка, долгий выдох. 
+VIII; Прерывистый вдох, внутренняя задержка, долгий выдох. 
 
-IX: Долгий вдох, внутренняя задержка, прерывистый выдох. 
+IX: Долгий вдох, внутренняя задержка, прерывистый выдох. 
 
-X:   Прерывистый вдох,  внутренняя задержка,  прерывистый выдох. 
+X:   Прерывистый вдох,  внутренняя задержка,  прерывистый выдох. 
 
-XI; Прерывистый вдох, долгий выдох, внешняя задержка. 
+XI; Прерывистый вдох, долгий выдох, внешняя задержка. 
 
-XII: Долгий вдох, прерывистый выдох, внешняя задержка. 
+XII: Долгий вдох, прерывистый выдох, внешняя задержка. 
 
-XIII: Прерывистый вдох, прерывистый выдох, внешняя задержка 
+XIII: Прерывистый вдох, прерывистый выдох, внешняя задержка 
 
-XIV: Прерывистый вдох, внутренняя задержка, долгий выдох, внешняя задержка. 
+XIV: Прерывистый вдох, внутренняя задержка, долгий выдох, внешняя задержка. 
 
-XV: Долгий вдох, внутренняя задержка; прерывистый выдох, внешняя задержка. 
+XV: Долгий вдох, внутренняя задержка; прерывистый выдох, внешняя задержка. 
 
 XVI: Прерывистый вдох, внутренняя задержка, прерывистый выдох, внешняя задержка.
 
 ### Таблица Сурья Бхедана Пранаямы
 
- Ступень Пурака Антара Кумбхака
+ Ступень Пурака Антара Кумбхака
 
- Речака Бахйа Кумбхака  ПН МБ ЛН УБ I °  °  II
+ Речака Бахйа Кумбхака  ПН МБ ЛН УБ I °  °  II
 
- ° 15 -20 сек °  III °  ° НВД IV ° 15—20 сек ° 8—10 сек
+ ° 15 -20 сек °  III °  ° НВД IV ° 15—20 сек ° 8—10 сек
 
 ### Таблица Чандра Бхедана Пранаямы
 
- Ступень Пурака Антара Кумбхака Речака Бахйа Кумбхака  ЛН МБ ПН УБ I °  °  II
+ Ступень Пурака Антара Кумбхака Речака Бахйа Кумбхака  ЛН МБ ПН УБ I °  °  II
 
- ° 15—20 сек °  III °  ° НВД IV °' 15—20 сек ° 8 -10 сек
+ ° 15—20 сек °  III °  ° НВД IV °' 15—20 сек ° 8 -10 сек
 
 ЛН — левая ноздря
 
@@ -169,4 +169,4 @@ MБ — мула бандха
 
 УБ — уддийяна бандха
 
-[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-28-nadi-sadhana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-28-nadi-sadhana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

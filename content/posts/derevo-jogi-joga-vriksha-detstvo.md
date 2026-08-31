@@ -27,6 +27,6 @@ url: "/derevo-jogi-joga-vriksha-detstvo/"
 
 Дети смотрят нам в глаза, поэтому наши глаза должны быть такими же проницательными, как и их. Тогда они могут сосредоточиться. Детей надо контролировать через их глаза, а не словами. Вы должны выражать значения слов глазами. Это привлекает их, а затем приходит концентрация.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-celi-zhizni.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-lyubov-i-brak.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-celi-zhizni.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-lyubov-i-brak.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVmoNbz4GVhoLUzhVTnc89Kmfu5bH6tiu_c-2IhPJq4dQbccfOcfoVHiGl7lvBuP09kyNCVn7ynwoX8QbrnRY8lzVynFCp6bh4EzAHV4leAOhGRQ2w2I-R1FhQnw-AjWXlEoZi3D42ZVE/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25805.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVmoNbz4GVhoLUzhVTnc89Kmfu5bH6tiu_c-2IhPJq4dQbccfOcfoVHiGl7lvBuP09kyNCVn7ynwoX8QbrnRY8lzVynFCp6bh4EzAHV4leAOhGRQ2w2I-R1FhQnw-AjWXlEoZi3D42ZVE/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25805.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">

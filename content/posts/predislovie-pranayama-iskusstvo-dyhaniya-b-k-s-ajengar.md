@@ -7,7 +7,7 @@ url: "/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg1lVG1mxS3nR1vorRj0kl9kkbc4oUBsHx2FYQWbp7dGUnbaOip-AWgMr7vT6RocKmRQM9weVYnTzrU1JSxFpr0amRdDFRJI73GCD1VaSCdTVTgOr9ESoLGz7QrwFQuYfn7vXasZeZwuA8/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258070.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg1lVG1mxS3nR1vorRj0kl9kkbc4oUBsHx2FYQWbp7dGUnbaOip-AWgMr7vT6RocKmRQM9weVYnTzrU1JSxFpr0amRdDFRJI73GCD1VaSCdTVTgOr9ESoLGz7QrwFQuYfn7vXasZeZwuA8/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258070.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
 
 ## 
 
@@ -49,6 +49,6 @@ url: "/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Это ведет йогина шаг за шагом к трансценденции области чувств и власти эго с целью постепенной трансформации интегрального существования в новую жизнь, где существует единство с Высшим Духом в незагрязненной радости и гармонии. Потому в этой книге автор дал намек на то, что называют медитацией, или дхьяной. Он закончил книгу несколькими краткими советами по шавасане — позе, которая ведет к абсолютному расслаблению, сопряженному с очень слабой активностью ума. Шри Айенгар завершает этот огромный труд по написанию руководства ш. лранаяме, предлагая читателю секрет подлинного расслабления, и таким образом подготавливает его к следующему и окончательному восхождению к вершине медитативного самадхи. Прекрасным примером удачной реализации этого курса из трех книг. «Взгляд на Йогу», «Взгляд на Пранаяму», «Взгляд на Дхьяну» — является жизнь Шри Айенгара, ибо тройным светом осветил он другим людям путь к Эвересту духовности.
 
-Бангалор 14 июня 1979 г. **Р.Р. Дивакар**.
+Бангалор 14 июня 1979 г.**Р.Р. Дивакар**.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/12/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/12/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

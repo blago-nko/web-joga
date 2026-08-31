@@ -27,6 +27,6 @@ url: "/derevo-jogi-joga-vriksha-derevo-jogi/"
 
 Наконец, когда цветок превращается в плод, наступает самадхи. Как сутью дерева являются его плоды, так суть практики йоги - свобода, равновесие, мир и блаженство самадхи, где тело, разум и душа объединяются и сливаются с Абсолютным Духом.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-est-edinstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-lichnost-i-obshchestvo.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-est-edinstvo.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-lichnost-i-obshchestvo.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgMV8IVJrCNrB-isp8ZQMLU2qg398PpvtSBUNwgVBwiLiFmt8iuhfEkxGpV2l38kilFo10hJMuxodFtw_r-bVGBSWOSmJmc3EN6QvjxqrbV9atFJ16qnE8rcc_shmZ2XsZHGuquIuuqn4/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25802.jpeg" alt="Б.К.С. Айенгар" title="Б.К.С. Айенгар">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgMV8IVJrCNrB-isp8ZQMLU2qg398PpvtSBUNwgVBwiLiFmt8iuhfEkxGpV2l38kilFo10hJMuxodFtw_r-bVGBSWOSmJmc3EN6QvjxqrbV9atFJ16qnE8rcc_shmZ2XsZHGuquIuuqn4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25802.jpeg" alt="Б.К.С. Айенгар" title="Б.К.С. Айенгар">

@@ -77,15 +77,15 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjR0qX-EvqVROqLoaRLZCYrsRLEsNFkvgwPylR8Dy5wHrJOiZxAOAW41AZM1BA_-n8OcixfB5DD2wG1SsIVOfX1DyZGP5K1Guu20iqHmB7xcamf4mm6y1TZRGK9zCOA7vC8oVZUkoh21Ds/w507-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE145.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 145</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjR0qX-EvqVROqLoaRLZCYrsRLEsNFkvgwPylR8Dy5wHrJOiZxAOAW41AZM1BA_-n8OcixfB5DD2wG1SsIVOfX1DyZGP5K1Guu20iqHmB7xcamf4mm6y1TZRGK9zCOA7vC8oVZUkoh21Ds/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE145.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 145</figcaption></figure>
 
 1. Сядьте в любую асану, следуя технике пунктов 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Поднимите правую руку к ноздрям и вдохните, следуя технике, описанной в пунктах 3 — 5 ступени I ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)),
+2.  Поднимите правую руку к ноздрям и вдохните, следуя технике, описанной в пунктах 3 — 5 ступени I ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)),
 
 3. Когда легкие совершенно наполнятся, закройте обе ноздри центральными областями кончиков пальцев (фот. 145), не допуская утечки воздуха. Задержите дыхание с мула бандхой ([фот. 69](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html)) на пятнадцать — двадцать секунд или на сколько возможно.
 
-4.  Опустите правую руку и расположите ее на правом колене.
+4.  Опустите правую руку и расположите ее на правом колене.
 
 5. Выдохните с открытыми ноздрями мягко, медленно и плавно, пока легкие не опустошатся совершенно.
 
@@ -97,21 +97,21 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую удобную асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую удобную асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Поднимите правую руку к ноздрям. Теперь вдохните, следуя технике, данной в пунктах 3 — 6 ступени 16 ([фот. 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
+2.  Поднимите правую руку к ноздрям. Теперь вдохните, следуя технике, данной в пунктах 3 — 6 ступени 16 ([фот. 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
 3. После полного вдоха закройте обе ноздри (фот. 145) и задержите дыхание с мула бапдхой ([фот. 69](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html)) на пятнадцать-двадцать секунд или на сколько возможно.
 
-4.  Опустите правую руку на колено. Выдохните с открытыми ноздрями мягко, медленно, устойчиво и плавно, пока не почувствуете, что легкие совершенно пусты.
+4.  Опустите правую руку на колено. Выдохните с открытыми ноздрями мягко, медленно, устойчиво и плавно, пока не почувствуете, что легкие совершенно пусты.
 
-5.  Затем поднимите правую руку к носу и закройте правую ноздрю полностью, но контролируйте левую, частично открыв ее ([фот. 112](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
+5.  Затем поднимите правую руку к носу и закройте правую ноздрю полностью, но контролируйте левую, частично открыв ее ([фот. 112](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
-6.  Вдохните через левую ноздрю, следуя технике пунктов 4 — 6 ступени 16, читая их слева направо и в обратном порядке.
+6.  Вдохните через левую ноздрю, следуя технике пунктов 4 — 6 ступени 16, читая их слева направо и в обратном порядке.
 
-7.  В конце вдоха задержите дыхание, как в описанном выше пункте 3.
+7.  В конце вдоха задержите дыхание, как в описанном выше пункте 3.
 
-8.  Затем опустите правую руку и выдохните, как описано выше в пункте 4.
+8.  Затем опустите правую руку и выдохните, как описано выше в пункте 4.
 
 9. Два вдоха, выполненные через обе ноздри поочередно, две внутренние задержки с закрытыми ноздрями и мула бандхой и два выдоха с открытыми ноздрями составят один цикл- Повторяйте его в течение пятнадцати — двадцати минут или сколько возможно без напряжения. После завершения последнего цикла вдохните через открытые ноздри и лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
@@ -125,11 +125,11 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую асану, следуя технике, данной в пунктах 1—7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую асану, следуя технике, данной в пунктах 1—7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 2. Поднимите руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
-3.  Вдохните, следуя технике, данной в пунктах 3 — 5 ступени 1а ([фот 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
+3.  Вдохните, следуя технике, данной в пунктах 3 — 5 ступени 1а ([фот 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
 4. Выдохните через открытые ноздри — медленно, равномерно и плавно, пока не почувствуете, что легкие совершенно пусты.
 
@@ -181,7 +181,7 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 5. Опустите правую руку и положите ее на колено.
 
-6.  Выдохните через открытые ноздри — мягко, равномерно, медленно и плавно, до тех пор пока легкие не станут совершенно пусты.
+6.  Выдохните через открытые ноздри — мягко, равномерно, медленно и плавно, до тех пор пока легкие не станут совершенно пусты.
 
 7. Затем выполните задержку с уддийяной в течение десяти — пятнадцати секунд или сколько сможете ([фот. 104](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)). Затем ослабьте напряжение уддийяны.
 
@@ -195,9 +195,9 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме
+2.  Поднимите правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме
 
 3. Вдохните, следуя технике, описанной выше в пунктах 3 — 6 ступени 16 ([фот 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
@@ -227,7 +227,7 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 ### Таблица Пратилома Пранаямы
 
- Ступень Пурака Пурака Антара Кумбхака Антара Кумбхака Бохья Кумбхакя  ОНЧЗ НЧЗП МБ НО УБ IA °   °  Б  °  °  ПА °  15— 20 сек °  Б  ° 15— 20 сек °  III A °   ° 10—15 сек Б  °  ° 10—15 сек IVA °  15—20 сек ° Ш— 15 сек Б  ° 15—20 сек ° 10—15 сек
+ Ступень Пурака Пурака Антара Кумбхака Антара Кумбхака Бохья Кумбхакя  ОНЧЗ НЧЗП МБ НО УБ IA °   °  Б  °  °  ПА °  15— 20 сек °  Б  ° 15— 20 сек °  III A °   ° 10—15 сек Б  °  ° 10—15 сек IVA °  15—20 сек ° Ш— 15 сек Б  ° 15—20 сек ° 10—15 сек
 
 МБ — мула бандха
 
@@ -239,4 +239,4 @@ url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 УБ — уддийана бандха
 
-[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

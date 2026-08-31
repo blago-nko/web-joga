@@ -27,6 +27,6 @@ url: "/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina/"
 
 Аюрведа начинается с тела, а йога начинается с сознания. Однако, несмотря на различные начальные точки, обе они помогают поддерживать здоровье тела, и обе они являются мокша-шастрами, то есть учениями об освобождении.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cel-i-pobochnyj-rezultat.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-prakticheskij-podhod.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-cel-i-pobochnyj-rezultat.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-prakticheskij-podhod.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKwGq-y7kt-vRaMllNpyLFgIqdPzOGIq0LKdKVS7XgqHgiMuc9zqFW6kDtnPTiB9nNG-GVfji4kal-UUj-mHmlX-3ZfMrZAJaPxMHLKIRezfl_PG05q1xQmlbsy-1OqetNrXA5PU8If3Y/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258023.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKwGq-y7kt-vRaMllNpyLFgIqdPzOGIq0LKdKVS7XgqHgiMuc9zqFW6kDtnPTiB9nNG-GVfji4kal-UUj-mHmlX-3ZfMrZAJaPxMHLKIRezfl_PG05q1xQmlbsy-1OqetNrXA5PU8If3Y/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258023.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

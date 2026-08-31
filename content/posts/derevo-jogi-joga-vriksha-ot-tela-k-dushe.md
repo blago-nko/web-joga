@@ -25,6 +25,6 @@ url: "/derevo-jogi-joga-vriksha-ot-tela-k-dushe/"
 
 Но если вы забываете о теле прежде, чем вы освоите начальные ступени, вы никогда не достигнете этой точки. В этом заключается проблема. Как мы можем прикоснуться к бесконечному, пока не познали конечное?
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-priroda-meditacii.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-priroda-meditacii.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhekH_01n6mDl0BsSZlLEnSBlEDR9hOPcaVBROu3lposn6xdgpFV1ix3mtg5SFhO73ZYPibvshaIDi8kt3RXHDf_m9WhHS7fbChX2bWJ-0orRpmV0vq9Dr9r45632myBygzcdYH03JHkKY/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258033.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhekH_01n6mDl0BsSZlLEnSBlEDR9hOPcaVBROu3lposn6xdgpFV1ix3mtg5SFhO73ZYPibvshaIDi8kt3RXHDf_m9WhHS7fbChX2bWJ-0orRpmV0vq9Dr9r45632myBygzcdYH03JHkKY/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258033.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

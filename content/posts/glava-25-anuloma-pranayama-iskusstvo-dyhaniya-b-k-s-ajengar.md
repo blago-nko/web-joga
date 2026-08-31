@@ -7,7 +7,7 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhatudNFgTNE-lnDkfpVHhvIIcZZf2rZytOfMpV-Aqhnm772HB4PbH4iUFv01S247trFA0luvGpViGRyLgFPoWAGACei6b18V16t27dXDAjsSfsicJbqEqkQZk8mWpAY8cRpq2lJ6cfS4c/w640-h640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580132.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhatudNFgTNE-lnDkfpVHhvIIcZZf2rZytOfMpV-Aqhnm772HB4PbH4iUFv01S247trFA0luvGpViGRyLgFPoWAGACei6b18V16t27dXDAjsSfsicJbqEqkQZk8mWpAY8cRpq2lJ6cfS4c/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580132.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## Глава 25. Анулома Пранаяма
 
@@ -29,7 +29,7 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 1. Сядьте в любой асане, следуя технике, описанной в пунктах 1 — 7 удджайи, ступень V, Выдохните из легких весь воздух ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Глубоко вдохните через обе ноздри, пока легкие не наполнятся ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Глубоко вдохните через обе ноздри, пока легкие не наполнятся ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Задержите дыхание на 1-2 секунды, чтобы поднять правую руку к ноздрям, как описано в пунктах 12 — 22 [гл. 22](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) о пальцевой пранаяме.
 
@@ -57,7 +57,7 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 1. Сядьте в любую асану, следуя технике, описанной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, описанной в пунктах 2 и 3 ступени 1а ([фот 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, описанной в пунктах 2 и 3 ступени 1а ([фот 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Теперь начинайте процесс выдоха через правую ноздрю. Полностью закройте левую ноздрю кончиками безымянного пальца и мизинца, не нарушая положения носовой перегородки.
 
@@ -89,9 +89,9 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую асану, следуя технике, данной в пунктах 1— 7 удджайи, ступень V. Выдохните из легких весь воздух ([фот 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую асану, следуя технике, данной в пунктах 1— 7 удджайи, ступень V. Выдохните из легких весь воздух ([фот 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, описанной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, описанной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Когда легкие наполнятся, задержите дыхание на десять-пятнадцать секунд или на сколько возможно ([фот. 101](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
@@ -109,11 +109,11 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Глубоко выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Глубоко выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, данной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, данной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-3.  Когда легкие наполнятся, задержите дыхание на пятнадцать-двадцать секунд или насколько возможно ([фот. 101](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+3.  Когда легкие наполнятся, задержите дыхание на пятнадцать-двадцать секунд или насколько возможно ([фот. 101](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 4. Теперь выдохните через правую ноздрю, как в пунктах 3 — 5 ступени 16 ([фот 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
@@ -139,7 +139,7 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 1. Сядьте в любую асану, следуя такой же технике, как в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, данной в пункте 2, ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, данной в пункте 2, ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Теперь начинайте выдох через частично открытые ноздри, как описано в пунктах 4 — 8 ступени 1а ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
@@ -159,13 +159,13 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 1. Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V, и выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, данной в пункте 2, ступени 1а ([фот 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, данной в пункте 2, ступени 1а ([фот 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Теперь выдохните через правую ноздрю, как описано в пунктах 3 — 5 ступени 16 ([фот 111](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html))
 
 4. Когда легкие станут совершенно пустыми, опустите правую руку и положите ее на колено. Сохраняйте пассивность (не вдыхайте) в течение пяти секунд ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-5.  Затем глубоко вдохните через открытые ноздри, как описано в пункте 2 ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+5.  Затем глубоко вдохните через открытые ноздри, как описано в пункте 2 ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 6. Теперь начинайте процесс выдоха через левую ноздрю, как описано в пунктах 8 — 10 ступени 16 ([фот. 112](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)).
 
@@ -183,17 +183,17 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Техника
 
-1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+1.  Сядьте в любую асану, следуя технике, данной в пунктах 1 — 7 удджайи, ступень V. Выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-2.  Вдохните, следуя технике, данной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+2.  Вдохните, следуя технике, данной в пункте 2 ступени 1а ([фот. 98](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 3. Когда легкие наполнятся, задержите дыхание с мула бандхой на десять-двенадцать секунд или насколько возможно ([фот 101](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
 4. Медленно выдохните, следуя технике, данной в пунктах 5 — 8 ступени 1а ([фот. 110](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html)), постепенно освобождая сжатие абдоминальных органов.
 
-5. Когда легкие станут пустыми, опустите правую руку и положите ее на колено   Затем выполните внешнюю задержку с уддийяна бандхой на пять-шесть секунд ([фот 104](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
+5. Когда легкие станут пустыми, опустите правую руку и положите ее на колено   Затем выполните внешнюю задержку с уддийяна бандхой на пять-шесть секунд ([фот 104](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
-6.  Ослабьте напряжение уддийяны.
+6.  Ослабьте напряжение уддийяны.
 
 7. Это составляет один цикл Повторяйте такие циклы в течение пятнадцати — двадцати минут. Вдохните, затем лягте в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
@@ -263,9 +263,9 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 ### Таблица Анулома Пранаямы
 
- Ступень Пурака Пурака Антара Кумбхака Антара Кумбхака Речака Речака Бохья Кумбхака
+ Ступень Пурака Пурака Антара Кумбхака Антара Кумбхака Речака Речака Бохья Кумбхака
 
- Бохья Кумбхака  У В Без МБ МБ ОНЧЗ ЯЧЗП Без УБ УБ IA °    °    Б °     °   ПА °  10— 15 сек  °    Б °  10—15 сек   °   IIIА °    °  5 сек  Б °     ° 5 сек  IVA °   10 сек °   5-8 сек Б °   10—15 сек  °  5-8 сек VA  °   °    Б  °   °    VIA  ° 10—15 сек  °    Б  ° 10— 15 сек   °   VII А  °   °  5 сек  Б  °    ° 5 сек  VIII А  °  10 сек °   5-8сек Б  °  10—15 сек  °  5-8 сек
+ Бохья Кумбхака  У В Без МБ МБ ОНЧЗ ЯЧЗП Без УБ УБ IA °    °    Б °     °   ПА °  10— 15 сек  °    Б °  10—15 сек   °   IIIА °    °  5 сек  Б °     ° 5 сек  IVA °   10 сек °   5-8 сек Б °   10—15 сек  °  5-8 сек VA  °   °    Б  °   °    VIA  ° 10—15 сек  °    Б  ° 10— 15 сек   °   VII А  °   °  5 сек  Б  °    ° 5 сек  VIII А  °  10 сек °   5-8сек Б  °  10—15 сек  °  5-8 сек
 
 В — вилома
 
@@ -275,8 +275,8 @@ url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 УБ — уддийана бандха
 
-НЧЗП — ноздри частично закрыты поочередно 
+НЧЗП — ноздри частично закрыты поочередно 
 
 ОНЧЗ — обе ноздри частично закрыты
 
-[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

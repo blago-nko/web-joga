@@ -7,11 +7,11 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-izyany-razuma.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dharana-koncentraciya.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM23l1t-ZIABwHTWIVm5-xkJ8HPEo-mKYxfCrZUJzpF6OtLyOj7yuZzpanbg-iRwEZf0Q4oy0uFM4i9JrELJ6CVny2BEha8eIEkU_5h0QNRjReXWJHjJjj9q7LALfxug59k7KgbeKG7Kc/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258087.jpg" alt="Айенгар " title="Айенгар ">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM23l1t-ZIABwHTWIVm5-xkJ8HPEo-mKYxfCrZUJzpF6OtLyOj7yuZzpanbg-iRwEZf0Q4oy0uFM4i9JrELJ6CVny2BEha8eIEkU_5h0QNRjReXWJHjJjj9q7LALfxug59k7KgbeKG7Kc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258087.jpg" alt="Айенгар " title="Айенгар ">
 
 ## 
 
-Совесть 
+Совесть 
 
 Интеллект в высшей степени наблюдателен, вернее, он наблюдает сам за собой, потому что он способен инициировать действия и повлиять на их последствия. Сознательное усилие в наблюдении и признании этих дефектов (прежде всего в себе, а не в других), приносит свои плоды. Такое детальное самонаблюдение формирует отдельную часть учения о себе (свядхьяйя ), что является четвертой составляющей этического кода – ниямы . Но нам все еще нужны и йоговская техника, и независимый арбитр. Сначала разберемся со вторым. Функция независимого арбитра, свидетеля из свидетелей, наполнена сознанием (антахкарана) . Это та сторона линзы сознания, которая обращена к солнцу. Менее вероятно, что она будет запятнана контактом с миром, чем внешняя, которая постоянно соприкасается с миром через чувства. Когда грань сознания, которая по-английски звучит как «совесть», безупречна и отражает только лишь свет солнца, на санскрите ее называют добродетелью (дхармендрийя ).
 
@@ -25,4 +25,4 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Тем не менее я все-таки съездил в Сикстинскую капеллу и увидел великолепную потолочную роспись, на которой Бог протягивает руку из облака и его палец почти достает до руки Адама. Это я имею в виду под отношениями между душой и совестью. Они почти соприкасаются, и порой божественная искра проходит через человека от высшей десницы.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-izyany-razuma.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dharana-koncentraciya.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-izyany-razuma.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dharana-koncentraciya.html)

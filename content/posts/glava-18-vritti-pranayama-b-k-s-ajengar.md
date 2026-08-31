@@ -7,7 +7,7 @@ url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## 
 
@@ -47,7 +47,7 @@ url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 
 13. Висама означает неравномерный, несимметричный. Висамавритти пранаяма называется так потому, что продолжительность пураки, антара кумбхаки, речаки и бахъя кумбхаки варьируют. Это ведет к прерывистому ритму, и разности в пропорции порождают трудности и опасность для учеников, если они не одарены крепкими нервами и хорошими легкими.
 
-14. Сперва начните со вдоха, антара кумбхаки и выдоха в соотношении 1:2:1 Увеличивайте пропорцию постепенно до 1: 3 : 1, затем до 1 . 4 . 1 Затем установите и утвердитесь в соотношении 1 : 4. 1 1/4, 1   4   13/4 и 1   4.2 Только когда, когда вы овладеете этим, постепенно увеличивайте долю бахья кумбхаки в пропорции 1   4 . 2  1/4 1   4:2  1/2, 1 . 4   2 : 3/4 и 1   4.2   1 Эти четыре составляющих образуют один цикл висамавритти пранаямы.
+14. Сперва начните со вдоха, антара кумбхаки и выдоха в соотношении 1:2:1 Увеличивайте пропорцию постепенно до 1: 3 : 1, затем до 1 . 4 . 1 Затем установите и утвердитесь в соотношении 1 : 4. 1 1/4, 1   4   13/4 и 1   4.2 Только когда, когда вы овладеете этим, постепенно увеличивайте долю бахья кумбхаки в пропорции 1   4 . 2  1/4 1   4:2  1/2, 1 . 4   2 : 3/4 и 1   4.2   1 Эти четыре составляющих образуют один цикл висамавритти пранаямы.
 
 15. Сперва ученику будет трудно поддерживать ритм во время речаки, бахья кумбхаки и пураки, так как дыхание затруднено. Однако длительная и непрерывная практика принесет облегчение.
 
@@ -69,4 +69,4 @@ url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 
 22. Это предостережение, относящееся к самавритти пранаяме и практике кумбхаки, применимо еще в большей степени к висамавритти пранаяме. Запомните слова Сватмарамы в его Хатха-Йога Прадипике о том, что прану следует приручать более постепенно, чем львов, слонов и тигров; в противном случае она убьет практикующего.
 
-[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)

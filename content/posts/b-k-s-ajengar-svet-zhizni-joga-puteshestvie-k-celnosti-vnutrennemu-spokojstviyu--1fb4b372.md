@@ -7,7 +7,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-samadhi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sila.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHmLkc7B7XXnipwaeyi82L06tlAC7VGlQO5vczNyX9_ukG7WFgDZaCobIu6e-oM-QixxHXt0arcIGGnRngLahWuxBrMySPeW8iPGlZULU5PN8KlfzvUkRu-PZfkDvRpLHocFQ5XwNGRVI/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258097.jpg" alt="Айенгар " title="Айенгар ">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHmLkc7B7XXnipwaeyi82L06tlAC7VGlQO5vczNyX9_ukG7WFgDZaCobIu6e-oM-QixxHXt0arcIGGnRngLahWuxBrMySPeW8iPGlZULU5PN8KlfzvUkRu-PZfkDvRpLHocFQ5XwNGRVI/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258097.jpg" alt="Айенгар " title="Айенгар ">
 
 ## 
 
@@ -35,4 +35,4 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 Рядовому практикующему стоит помнить, что обучение жизни в свободе станет прогрессивным процессом, потому что мы освободимся от привычек тела, ума и эмоций. Пока мы набираемся мастерства, мы должны также учиться этично пользоваться возрастающей силой.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-samadhi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sila.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-samadhi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sila.html)

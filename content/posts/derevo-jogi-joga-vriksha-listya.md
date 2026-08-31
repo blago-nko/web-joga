@@ -29,6 +29,6 @@ url: "/derevo-jogi-joga-vriksha-listya/"
 
 Если рассматривать дыхание как функцию респираторной системы, оно представляет собой всего лишь физический процесс. Но когда вы изучили и поняли влияние дыхания на ум, оно становится духовным. Пранаяма - это мост между физическим и Духовным. Поэтому пранаяма является центральной осью йоги.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vetvi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-kora.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vetvi.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-kora.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiR2yII5PnRA2jtnU-MqQA8D0e-OvfWXuryW7h5FKh6HCFhRFby1WBCjN_smZHMEe6a1AkKlS-5Rzfbz4FFE_FErkJjceTvhFc1f9tt3nOEhDMIdxfuOFC-8TTQrK4KLz37PLJhulG7Vmo/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258016.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiR2yII5PnRA2jtnU-MqQA8D0e-OvfWXuryW7h5FKh6HCFhRFby1WBCjN_smZHMEe6a1AkKlS-5Rzfbz4FFE_FErkJjceTvhFc1f9tt3nOEhDMIdxfuOFC-8TTQrK4KLz37PLJhulG7Vmo/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258016.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">

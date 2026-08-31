@@ -7,7 +7,7 @@ url: "/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_ZreNs1JUHDxVvQjSubXaAlmfvIy8-FnuQmI7buKqQDY3o_vxa95w3vCSZ-zixEthiI6Ha55vIB-kwQwbn2hi_09a5ayVKnfjieHDtcPsXjZQlJQPhPd7dx8hBGRx3p44v7u91aaPUCk/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580125.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_ZreNs1JUHDxVvQjSubXaAlmfvIy8-FnuQmI7buKqQDY3o_vxa95w3vCSZ-zixEthiI6Ha55vIB-kwQwbn2hi_09a5ayVKnfjieHDtcPsXjZQlJQPhPd7dx8hBGRx3p44v7u91aaPUCk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580125.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
 ## 
 
@@ -51,4 +51,4 @@ url: "/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 19. Пранаяма — это окно к Самости. Вот почему она зовется великой аскезой (маха тапас) и истинным знанием Самости (Брах-мавидья).
 
-[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html)

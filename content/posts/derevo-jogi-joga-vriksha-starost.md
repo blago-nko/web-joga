@@ -27,6 +27,6 @@ url: "/derevo-jogi-joga-vriksha-starost/"
 
 Так что все вы можете заниматься йогой. Королева Бельгии начала делать стойку на голове в возрасте восьмидесяти шести лет, и с ней ничего не случилось. Я надеюсь, вы поймете меня правильно. Все вы можете заниматься йогой, но занимайтесь ей благоразумно, осознавая свои возможности. Если вы попытаетесь подражать мне, конечно же вы пострадаете, потому что я занимался йогой полвека. Нужно потерпеть, чтобы достичь подобного уровня. Йогу нельзя взять приступом.
 
-[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-smert.html)
+[Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-smert.html)
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6kK5M_p1nNxQanzQfzEWTPJci_83rNwh14YL_zzdp8HLDwJvgV-S4lhbWVNKGJdsyYgXbtYADZaFAvd6PGL2kVmB0hKtt9xtgXECRoHUNqnbXDnSdj_gcBbJOCdmazb3Yxk1VDuWqQBo/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25808.jpg" alt="Айенгар" title="Айенгар">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6kK5M_p1nNxQanzQfzEWTPJci_83rNwh14YL_zzdp8HLDwJvgV-S4lhbWVNKGJdsyYgXbtYADZaFAvd6PGL2kVmB0hKtt9xtgXECRoHUNqnbXDnSdj_gcBbJOCdmazb3Yxk1VDuWqQBo/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25808.jpg" alt="Айенгар" title="Айенгар">

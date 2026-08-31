@@ -5,7 +5,7 @@ aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html"
 url: "/osnovy-jogi-shri-aurobindo-oglavlenie/"
 ---
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2wo6QJ7gJXaBgqP97COqF8r2H-7JBctFvSOYqOEfvNCCibHsDLi9215g5K6SMJIwwlP8xUsgd8w-zg0dtHQjmRybRVoH14_kiLrj2mPF3m8ki66Ldz3F4JHVVv-VsoErhB5gpz1IroZ4/s640-rw/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE.jpg" alt="" title="">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh2wo6QJ7gJXaBgqP97COqF8r2H-7JBctFvSOYqOEfvNCCibHsDLi9215g5K6SMJIwwlP8xUsgd8w-zg0dtHQjmRybRVoH14_kiLrj2mPF3m8ki66Ldz3F4JHVVv-VsoErhB5gpz1IroZ4/s1600/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE.jpg" alt="" title="">
 
 ## 
 
