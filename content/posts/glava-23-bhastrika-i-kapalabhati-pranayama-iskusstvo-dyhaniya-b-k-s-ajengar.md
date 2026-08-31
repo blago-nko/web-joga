@@ -1,7 +1,6 @@
 ---
 title: "Глава 23. Бхастрика и Капалабхати  Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-05-31
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 23. Бхастрика и Капалабхати Пранаяма Бхастрика Пранаяма Бхастрика означает..."
 aliases:
   - "/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

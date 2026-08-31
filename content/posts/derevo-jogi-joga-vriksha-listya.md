@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Листья"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Как листва является органом дыхания дерева и снабжает его питательными ве..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-listya.html"
 url: "/derevo-jogi-joga-vriksha-listya/"

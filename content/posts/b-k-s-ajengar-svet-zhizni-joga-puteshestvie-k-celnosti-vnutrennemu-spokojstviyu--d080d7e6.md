@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Шесть нервных недугов"
 date: 2019-11-17
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Шесть нервных недугов  Благодаря йоге мы способны искоренить шесть нервны..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-shest-nervnyh-nedugov.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-shest-nervnyh-nedugov/"

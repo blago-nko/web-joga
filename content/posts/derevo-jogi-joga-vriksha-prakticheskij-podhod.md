@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Практический подход"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   В современной медицине используется кортизон, который считается единствен..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-prakticheskij-podhod.html"
 url: "/derevo-jogi-joga-vriksha-prakticheskij-podhod/"

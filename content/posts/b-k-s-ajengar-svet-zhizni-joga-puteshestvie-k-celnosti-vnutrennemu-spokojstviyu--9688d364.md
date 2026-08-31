@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Последнее восхождение"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая  Последнее восхождение   Я намеренно предварительно осветил все этапы нашего..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-poslednee-voskhozhdenie.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-poslednee-voskhozhdenie/"

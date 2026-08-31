@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Кора"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Когда вы совершенно и полностью поглощены своим выполнением асаны, не заб..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-kora.html"
 url: "/derevo-jogi-joga-vriksha-kora/"

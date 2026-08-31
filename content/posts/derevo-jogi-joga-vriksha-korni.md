@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Корни"
 date: 2019-10-26
-description: "Предыдущая  >>> Оглавление  <<< Следующая   В практике асаны можно обнаружить все восемь уровней йоги. Первым уровнем..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-korni.html"
 url: "/derevo-jogi-joga-vriksha-korni/"

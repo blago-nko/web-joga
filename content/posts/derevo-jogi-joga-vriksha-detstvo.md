@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Детство"
 date: 2019-10-23
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Подход ребенка к йоге сильно отличается от подхода взрослого. Рассмотрим ..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-detstvo.html"
 url: "/derevo-jogi-joga-vriksha-detstvo/"

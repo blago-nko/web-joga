@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Искусство исцеления"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Основной целью йоги является достижение свободы и блаженства, а побочные ..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-iskusstvo-isceleniya.html"
 url: "/derevo-jogi-joga-vriksha-iskusstvo-isceleniya/"

@@ -1,7 +1,6 @@
 ---
 title: "Глава 7. Пища - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-02-22
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава 7. Пища  1. Маханарьайяно Упанишада (79 —15) описывает пищу (анна) как..."
 aliases:
   - "/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar/"

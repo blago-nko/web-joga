@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Смерть"
 date: 2019-10-24
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Для йога смерть не важна; он не думает о том, когда он умрет. То, что про..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-smert.html"
 url: "/derevo-jogi-joga-vriksha-smert/"

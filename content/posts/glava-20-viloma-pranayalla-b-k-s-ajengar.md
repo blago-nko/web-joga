@@ -1,7 +1,6 @@
 ---
 title: "Глава 20. Вилома Пранаялла - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-05-02
-
 aliases:
   - "/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html"
 url: "/glava-20-viloma-pranayalla-b-k-s-ajengar/"

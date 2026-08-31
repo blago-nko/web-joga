@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога и аюрведическая медицина"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Аюрведа представляет собой традиционную индийскую медицину. "Аюр..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina.html"
 url: "/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina/"

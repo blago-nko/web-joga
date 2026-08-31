@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Универсальная и личная этика"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Универсальная и личная этика   Как мы уже поняли, для йога природа и дух ..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-universalnaya-i-lichnaya-ehtika.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-universalnaya-i-lichnaya-ehtika/"

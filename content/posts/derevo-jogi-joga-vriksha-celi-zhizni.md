@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цели жизни"
 date: 2019-10-23
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Согласно индийской традиции, общество разделяется на четыре категории, ил..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-celi-zhizni.html"
 url: "/derevo-jogi-joga-vriksha-celi-zhizni/"

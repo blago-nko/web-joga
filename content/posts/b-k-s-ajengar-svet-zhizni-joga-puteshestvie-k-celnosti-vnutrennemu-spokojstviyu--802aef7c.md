@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Жизнь – это учеба"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Жизнь – это учеба   Эта книга обозначила много разграничений – пять тонки..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhizn-ehto-ucheba.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhizn-ehto-ucheba/"

@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление   Большинство терминов в этом глоссарии являются санскритскими словами, именами людей, божеств, лег..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-glossarij.html"
 url: "/derevo-jogi-joga-vriksha-glossarij/"

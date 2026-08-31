@@ -1,7 +1,6 @@
 ---
 title: "Глава 25. Анулома Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-12
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 25. Анулома Пранаяма «Ану» означает «вместе с» или в нужной последовательн..."
 aliases:
   - "/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

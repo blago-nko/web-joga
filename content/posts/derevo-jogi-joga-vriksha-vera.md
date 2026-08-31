@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Вера"
 date: 2019-10-24
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Иногда меня спрашивают, необходимо ли практикующему йогу верить в Бога? М..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-vera.html"
 url: "/derevo-jogi-joga-vriksha-vera/"

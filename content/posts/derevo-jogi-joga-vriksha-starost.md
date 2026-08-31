@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Старость"
 date: 2019-10-23
-description: "Предыдущая  >>> Оглавление  <<< Следующая   В жизни никогда не бывает слишком поздно заниматься йогой. В противном ..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-starost.html"
 url: "/derevo-jogi-joga-vriksha-starost/"

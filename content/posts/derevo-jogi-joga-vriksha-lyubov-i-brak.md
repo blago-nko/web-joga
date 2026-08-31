@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Любовь и брак"
 date: 2019-10-23
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Один ученик, который вот-вот должен был стать отцом, спросил меня, как бу..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-lyubov-i-brak.html"
 url: "/derevo-jogi-joga-vriksha-lyubov-i-brak/"

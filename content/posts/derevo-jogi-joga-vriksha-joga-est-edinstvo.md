@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога есть единство"
 date: 2019-10-21
-description: "Б. К. С. АЙЕНГАР    Предыдущая  >>> Оглавление  <<< Следующая   Йога означает единение. Единение индивидуальной души с Аб..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-est-edinstvo.html"
 url: "/derevo-jogi-joga-vriksha-joga-est-edinstvo/"

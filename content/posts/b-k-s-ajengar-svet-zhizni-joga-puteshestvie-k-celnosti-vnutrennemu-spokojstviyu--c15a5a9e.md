@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Божественная йога: делайте асаны с душой"
 date: 2019-11-17
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Божественная йога: делайте асаны с душой  В практике асан и пранаямы скла..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-bozhestvennaya-joga-delajte-asany-s-dushoj.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-bozhestvennaya-joga-delajte-asany-s-dushoj/"

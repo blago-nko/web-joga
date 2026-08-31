@@ -1,7 +1,6 @@
 ---
 title: "Глава 22» Пальцевая Пранаяма и искусство расположения пальцев на носу - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-05-17
-description: "Предыдущая  >>> Оглавление  <<< Следующая Нос 1.  Нос представляет собой конусообразную камеру, поддерживаемую костью и хр..."
 aliases:
   - "/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html"
 url: "/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar/"

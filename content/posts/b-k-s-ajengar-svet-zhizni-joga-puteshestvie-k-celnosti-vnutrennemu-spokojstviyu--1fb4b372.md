@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Глава VII   Жизнь в Свободе"
 date: 2019-12-15
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Глава VII   Жизнь в Свободе  Многие из нас думают о свободе, как о поиска..."
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-vii-zhizn-v-svobode.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-glava-vii-zhizn-v-svobode/"

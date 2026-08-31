@@ -1,7 +1,6 @@
 ---
 title: "Глава 26. Пратилолла Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-17
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 26. Пратилолла Пранаяма «Прати» означает против или вопреки, «лома» означа..."
 aliases:
   - "/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

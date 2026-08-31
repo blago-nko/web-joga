@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Медитация и йога"
 date: 2019-10-28
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Медитацию невозможно описать словами. Ее нужно испытать самому. Медитац..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-meditaciya-i-joga.html"
 url: "/derevo-jogi-joga-vriksha-meditaciya-i-joga/"

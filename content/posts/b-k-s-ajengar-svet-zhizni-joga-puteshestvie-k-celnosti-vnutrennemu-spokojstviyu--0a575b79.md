@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Между Небом и Землей"
 date: 2019-11-16
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Между Небом и Землей  Как я уже говорил, человек всегда живет меж двух ре..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-mezhdu-nebom-i-zemlej.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-mezhdu-nebom-i-zemlej/"

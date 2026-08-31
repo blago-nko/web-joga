@@ -1,7 +1,6 @@
 ---
 title: "Глава 27. Сурья Бхедана и Чандра Бхедана Пранаяма - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-22
-description: "Предыдущая  >>> Оглавление  <<< Следующая Глава 27. Сурья Бхедана и Чандра Бхедана Пранаяма Сурья Бхедана Пранаяма «Сурья»..."
 aliases:
   - "/2020/06/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"
 url: "/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"

@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глубина асаны"
 date: 2019-10-24
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Тело нельзя отделить от ума, а ум - от души. Никто не может определить гр..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html"
 url: "/derevo-jogi-joga-vriksha-glubina-asany/"

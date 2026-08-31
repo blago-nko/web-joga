@@ -1,7 +1,6 @@
 ---
 title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Гордыня и вожделение"
 date: 2019-11-22
-description: "Предыдущая  >>> Оглавление  <<< Следующая   Гордыня и вожделение   Самое страшное в нервных недугах – это то, что в н..."
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie/"

@@ -1,7 +1,6 @@
 ---
 title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Здоровье как целостность"
 date: 2019-10-27
-description: "Предыдущая  >>> Оглавление  <<< Следующая   В наши дни стало очень модным слово "холистический", и мы часто..."
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-zdorove-kak-celostnost.html"
 url: "/derevo-jogi-joga-vriksha-zdorove-kak-celostnost/"
