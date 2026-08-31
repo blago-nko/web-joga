@@ -5,64 +5,34 @@ aliases:
   - "/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html"
 url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 ---
-
-[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
 
 Приставка «уд» означает увеличение или расширение. Она также содержит в себе смысл превосходства и мощи. «Джайя» означает победу или успех и, с другой точки зрения, самообладание. В удджайи легкие полностью расширены, а грудная клетка выпячена, как у могущественного завоевателя.
 
 Все стадии этой пранаямы, за исключением содержащих задержки (кумбхаки), можно выполнять в любое время. Однако если в сердце ощущается тяжесть, переполненность или боль, или же напряжена диафрагма, или если вы взволнованны и нарушен пульс, то, перед тем как лечь, положите на пол два деревянных бруска (каждый около одного квадратного фута и 1 1/2 дюйма толщиной), один поверх другого. Расположите спину на брусках так, чтобы ягодицы были ниже планок, а руки вытянуты вниз (фот. 79 - 81). Также можно воспользоваться валиком, как показано на фот. 82. Для удобства и расслабления положите на ноги груз, как на фот. 83. Вместо брусков можно использовать две подушки (фот. 84). Если из-за физического недостатка или болезни нельзя выпрямить ноги, согните колени и расположите нижние части ног на валике или стуле (фот. 85 и 86).
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZzCJ3PPAI-t6v_-z2qdAtsxHoYKmYnJTsjZtz1CLW7x-5NommxUwyFEn6IL4bi_m90P6kSzjapvFjqvpzXRxoHfgXjXjYl57g-AHw4YVoML9abl4V6PEgm5sy9H0YBxnZEDCnBuBW7g/) |
-| Фото 79 |
+Фото 79
 
-  
+Фото 80
 
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 80 |
+Фото 81 
 
-  
+Фото 82
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFtc9H07eh1ZlyrrM1INUlg652beZSsszPUO3rwhlJO0RFj7tEIjEfO1c-GI7jnTyL2gUv9zvc4UG8tD6Kwqgm3wCmidvrTtfX7w18LbuNNdA869zvWFpr-I-PAlW2iOxJWH3I0jOgcyA/) |
-| Фото 81 |
+Фото 83
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj273o9Pc9EhgNheYbqfw5IlwRixcL1lUMG4PzWLTm9yZfbzPGySqNIy5-_GTp_DDHmstKzfmAaRHe0KTDqgmhz4YJOeO0p1tVKpgHitB_fdYXQ1z-Mwa4GgycSYzujzs9l0bBBr1cSwlo/) |
-| Фото 82 |
+Фото 84
 
-  
+Фото 85
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicQkL4y2XQkjC0nplCNdFrc-pevikg5EU2LdXiXiDvW0R99OqKyK5PFybi3YVeCogh1HgBh-EzsyfGUt5deYNd4VBUPaGani53iA82Gp5qCFyvNfHFdRnpmflnrrv4aRHQaK-bqw6hDnc/) |
-| Фото 83 |
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnqB2HG6CEI2LW-4kNPUue8YZW-LKM9056mzlqQoXhD7Vpw_RG0WCfdUR6r-XdThpBDwqhRh6PyPLP0pAWXY_mpbvvVJUszQWCU8R8FyzLtPXT6nnJe5E9HBqpW3KfzrHsCQ16TDZ8fOs/) |
-| Фото 84 |
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvo-BI8MiPgauXto4Y4gaLSsr0UufQgB_hEArCN5G42UzPthwuoKXJaPcNoun9tDn3_7-b9h_GJaX404rre0Y2na5VWpqdx7uJ99YdEZqeJ4r-gIvGiLprGB4Dh511880BEyijmJzxM5I/) |
-| Фото 85 |
-
-  
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/) |
-| Фото 86 |
+Фото 86
 
 Когда спина расположена таким образом, мышцы тазового пояса стимулируют вдох. Это облегчает любое напряжение и смягчает диафрагму. Легкие и дыхательные мышцы функционируют плавно, и дыхание становится глубоким. Практика этой пранаямы приносит удивительное облегчение больным с увеличенным сердечным желудочком и врожденными пороками сердца. Более того, она успокаивает страх, мучающий сердечных больных, опасающихся, что малейшее движение ухудшит их состояние.
 
-### Примечания
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDcZiDvUz_D-Phqy1TUyCwSAazSBxUvW3AKa7wIehq-ms-4sTq2ZA7ddoT0QFoG7P-9Rh0v3AWQ6MdAyULtgJwxDa92a_ZrAbSo5rhIyc9nLpMQcyv5DsoDkZX6d1AY-U9vIx8CTuva4A/w640-h389-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE86.jpg "Б. К. С. АЙЕНГАР")
+
+###
+Примечания
 
 1. Все ступени всех пранаям начинаются с выдоха (речака) и заканчиваются вдохом (пурака). Сперва вы должны выдохнуть без остатка весь воздух, находящийся в легких, а затем начинать пра-наяму. Не заканчивайте пранаяму выдохом, это создает напряжение в сердце, а сделайте нормальный вдох в конце каждой ступени пранаямы. Не используйте усилие,
 
@@ -74,31 +44,23 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 5. Хотя шавасана и рекомендуется в конце каждой пранаямы, если вы хотите делать более одной ступени или несколько различных пранаям последовательно, то шавасану следует выполнять только в конце занятия.
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTgfM-5Rw8E0HTSjq46cLM84JydXxm0V4DQZ95qp7SCBL90pc4eJe7nBWUtuvQJ_Nb4R2s2uK5P7XGkVZ_cGpQNMqUrllcwgMutFD6jtEeLdRJ0aXhxM2h8yHkVAVn6HLjdX76ndpSpf8/) |
-| Фото 87 |
+Фото 87
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSZJGxwibgx-PRxeQHRytAQW9SvcMPJOq6ZniGd81GGh_6YE4S4zK9zFGX70o77na9LzamkeyWvd85SNq3-304LG6hfjTGffYYpInFzBB_oh6Sl4n52rzzfSPqjQDAg3topB73lYnmOcQ/) |
-| Фото 88 |
+Фото 88
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/) |
-| Фото 89 |
+Фото 89
 
-## Ступень I
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEju82ibd7x8YhFMH7A3P9fUMs384Qf6fpgpBH2ik-3rk8e4SxCVMSPFBd0MXTe0-pQJmDRV-LnF_1o8M7xcqp9p_7mteK1iYhaCW4V8bKv_dbMX2uCQ-J-hi1FM0EXpeCK-pCtO0mqg9D0/w590-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE88.jpg "Б. К. С. АЙЕНГАР")
+
+##
+Ступень I
 
 Эта подготовительная ступень обучает практикующего искусству осознания ощущений в легких; она ведет к ровному дыханию.
 
-### Техника
+###
+Техника
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqA3AlIrUDfDrVq_l927199MO0U1P6C0QZLMGYldn1lX04mjojX8VFp4mNHS9Cs7kBPI3Ach-TFLozmnKV2Oz3aKpMcmyIfm3zgOpcZ15nO6XKBOWzmyzQSAuE26RkKJd69OJPVSQPq_U/) |
-| Фото 90 |
+Фото 90
 
 1. Расстелите одеяло, сложив его в длину, на полу. Поверх него, точно кромка к кромке, под голову положите другое одеяло, сложенное втрое или вчетверо, таким образом, чтобы оно находилось под туловищем и затылком (фот, 89).
 
@@ -108,52 +70,34 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. По мере того как вы вдыхаете, удостоверьтесь, что оба легких наполняются равномерно. Чувствуйте, как грудная клетка расширяется в стороны и поднимается. Синхронизируйте эти два движения.
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrowudtPkkO8fLhQsjk_LxLDvoa0su_AYvSfHdREu6io2_rMMVBNU1dap74thyu6kdoOh9zjJvXgfYF0EpL1Vj0YHvPU3licw6GM_SqAnn9Tgr0A2igv_fzvpP3qEWCwVq32b9VLw4vJE/) |
-| Фото 91 |
+Фото 91
 
-  
+Фото 92
 
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 92 |
+Фото 93
 
-  
+Фото 94
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT1WzAeW6Gv8XEjJ46FOO__KYGxXbEiyUojInFk8OyA9hLtBPhUk4XF6lgrncSlAu4aANXGFEKB-QkRKzKlhm55OJGlfwUGYctbgMs3daecPUe-LtdAd52ngzhWXtHicIlcHOXqqo6luM/) |
-| Фото 93 |
-
-  
-
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 94 |
-
-  
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/) |
-| Фото 95 |
+Фото 95
 
 5. Выдыхайте спокойно, опорожняя легкие равномерно с обеих сторон. Если легкие опорожняются неравномерно, откорректируйте этот процесс.
 
 6. Продолжайте проделывать вышеописанное на протяжении десяти минут, сохраняя глаза закрытыми все это время.
 
-### Результаты
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhu7gcMxdjA140GMAI7c67wrveWCTNMQS3ktYBfEa1zsjpuUrAwryVEIqHYFktnp2_96cfwWdt3LygYLQEBxJHoGbe-VzVqJPMT4Tlt-t0C6DyqZvwMgbmGnd2BlNbLRHVz7wjPzs422mA/w640-h183-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE95.jpg "Б. К. С. АЙЕНГАР")
+
+###
+Результаты
 
 Вышеописанная практика развивает внимание, укрепляет нервы, облегчает всякое напряжение в легких и подготавливает их к глубокому дыханию.
 
-## Ступень II
+##
+Ступень II
 
 Эта подготовительная ступень учит практикующего увеличивать продолжительность каждого выдоха и помогает ему постичь искусство выдыхания.
 
-### Техника
+###
+Техника
 
 1. Лягте, следуя инструкциям, данным в пунктах 1 и 2 ступени I (фот. 89)
 
@@ -171,15 +115,18 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Акцент здесь делается на медленном, глубоком и устойчивом выдохе.
 
-### Результаты
+###
+Результаты
 
 Эта ступень успокаивает нервы и мозг. Медленные, равномерные и глубокие выдохи идеальны для страдающих сердечными расстройствами и гипертонией.
 
-## Ступень III
+##
+Ступень III
 
 Эта подготовительная ступень обучает практикующего увеличивать продолжительность каждого вдоха и познать искусство вдоха.
 
-### Техника
+###
+Техника
 
 1. Лягте, как это описано в ступени I, пунктах 1 и 2. Затем следуйте инструкциям, данным в ступени II, пунктах 2 и 4.
 
@@ -199,15 +146,18 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 9. Особое внимание здесь уделяется медленному, устойчивому вдоху. Напомню еще раз, слушайте звук дыхания и поддерживайте его ритм на протяжении всего цикла. Чтобы добиться лучшего ритмичного глубокого дыхания, рекомендуется использовать две дощечки, положив их под спину, как описано в начале этой главы (фот. 80 - 86).
 
-### Результаты
+###
+Результаты
 
 Эта подготовительная практика хороша для людей, страдающих низким кровяным давлением, астмой и депрессией. Она укрепляет нервную систему и вселяет уверенность.
 
-## Ступень IV
+##
+Ступень IV
 
 Эта подготовительная ступень обучает практикующего увеличивать продолжительность каждого вдоха и выдоха. Она помогает овладеть искусством глубокого вдоха и глубокого выдоха.
 
-### Техника
+###
+Техника
 
 1. Лягте, как описано в ступени I, пунктах 1 и 2. Затем следуйте инструкциям, данным в ступени II, пунктах 2 - 4.
 
@@ -217,15 +167,18 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. Это составляет один цикл. Повторяйте эти циклы в течение десяти- - пятнадцати минут, затем расслабьтесь.
 
-### Результаты
+###
+Результаты
 
 Эта ступень дает энергию, успокаивает и тонизирует нервы, ступени I- - IV являются подготовительными к удджайя пранаяме, выполняемой лежа.
 
-## Ступень V
+##
+Ступень V
 
 Дыхание здесь аналогично дыханию в ступени I, но выполняется сидя. Это обучает искусству наблюдения и ведет к равномерному дыханию.
 
-### Техника
+###
+Техника
 
 1. Сядьте в падмасану, сиддхасану, свастикасану или вирасану, или же в любую другую удобную позу.
 
@@ -243,33 +196,21 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 8. Следуйте техникам, данным в пунктах 3 - 6 ступени I, наблюдая поток дыхания. Делайте это в течение десяти минут и затем несколько минут отдохните в шавасане.
 
-## Ступень VI
+##
+Ступень VI
 
 Дыхание в этой ступени аналогично дыханию в ступени II, но выполняется сидя. Практикующий обучается увеличивать продолжительность каждого выдоха и овладевает искусством выдоха.
 
-### Техника
+###
+Техника
 
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 96 |
+Фото 96
 
-  
+Фото 97
 
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 97 |
+Фото 98
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0HlgNG47oPmSAgMkEjGABq2wURGJB6FSzY4gnhHSH70SogYksPgiTnV7SbxjvJPo5uZjJz7ScaEBU3AO316uXFul9FUgvXA54scjgIWZk5KyoIOMzrCtRKmlPehw56LHoNzqAnFSOKUI/) |
-| Фото 98 |
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/) |
-| Фото 99 |
+Фото 99
 
 1. Сядьте в любую удобную позу, следуя техникам, данным в пунктах 1 7 ступени V. Выдохните из легких весь находящийся там воздух (фот. 96).
 
@@ -283,11 +224,15 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 Акцент здесь делается на медленных, глубоких и равномерных выдохах.
 
-## Ступень VII
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgc2hnp1spGkjty3YVzj7XVPDnM9dgKli5T6LwaX065u3PRto8pO5DHwxgAF1Du4DASShbW_I-4RVmcLyZgFrEscaE7JpDN6UQxv6BAdHolG0VuHBfmOV0y-0XEAbNNV5Y9am1GTUkeEHc/w398-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE99.jpg "Б. К. С. АЙЕНГАР")
+
+##
+Ступень VII
 
 Дыхание в этой ступени подобно дыханию в ступени II, но выполняется сидя. Здесь практикующий учится увеличивать продолжительность каждого вдоха и искусству вдоха.
 
-### Техника
+###
+Техника
 
 1. Сядьте в любую удобную позу, следуя технике, данной в пунктах 1-7 ступени V и выдохните (фот. 96).
 
@@ -297,11 +242,13 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. Это завершает один цикл. Повторяйте эти циклы в течение десяти минут, вдохните и расслабьтесь в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)) ступени V и VII являются подготовительными к практике удджайи пранаямы, выполняемой сидя.
 
-## Ступень VIII
+##
+Ступень VIII
 
 Теперь начинайте собственно удджайи пранаяму, с глубоким вдохом и выдохом.
 
-### Техника
+###
+Техника
 
 1. Сядьте в любую удобную позу, следуя техникам, данным в пунктах 17 ступени V и выдохните из легких весь воздух (фот. 96).
 
@@ -333,15 +280,18 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 15. В каждом вдохе и выдохе существует незначительная пауза, во время которой мышцы туловища саморегулируются. Научитесь осознавать это.
 
-### Результаты
+###
+Результаты
 
 Эта пранаяма вентилирует легкие, успокаивает и тонизирует нервную систему. Как результат глубоких дыхательных действий, кровь переносит запас дающей жизнь энергии к мельчайшим частицам тканей. Это уменьшает количество флегмы, облегчает боль в груди, и голос становится мелодичным.
 
-## Ступень IX
+##
+Ступень IX
 
 Это - ступень для начинающих, в которой вводится задержка дыхания при наполненных легких. Это намеренная внутреняя задержка (сахита антара кумбхака).
 
-### Техника
+###
+Техника
 
 1. Сядьте в любой удобной позе, следуя техникам, данным в пунктах 1 — 7 ступени V, и выдохните ([фот. 96](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)).
 
@@ -361,21 +311,25 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 9. Выдохните медленно, не теряя контроль над туловищем, диафрагмой и легкими. После завершения практики сделайте несколько глубоких дыханий и затем отдохните в шавасане ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
-### Примечание
+###
+Примечание
 
 Внутреннюю задержку можно выполнять лежа, положив под голову подушку, имитируя таким образом, джаландхара бандху (фот. 77).
 
-### Результаты
+###
+Результаты
 
 Практика сахита антара кумбхаки развивает гармонию между дыханием и легкими, между нервами и умом. Если выполнять ее правильно, она вызывает динамическое состояние, в котором тело ощущается как до краев наполненным энергией. Она повышает работоспособность, уничтожает отчаяние, порождает надежду. Творя энергию, она укрепляет нервную систему и развивает выносливость. Это идеальное упражнение для тех, кто страдает от низкого кровяного давления, апатии, лени и сонливости.
 
 Однако антара кумбхака не рекомендуется людям, страдающим гипертонией и сердечными расстройствами
 
-## Ступень X
+##
+Ступень X
 
 Эта ступень - для начинающих, на которой вводится задержка дыхания при пустых легких. Она называется намеренной внешней задержкой (сахита бахья кумбхака).
 
-### Техника
+###
+Техника
 
 1. Сядьте в любую удобную позу, следуя технике, данной в пунктах 1 - 7 ступени V, и выдохните весь воздух, находящийся в легких (фот. 96).
 
@@ -387,40 +341,31 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 5. Сделайте несколько глубоких дыханий и лягте в шавасане ([фот, 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
-### Примечание
+###
+Примечание
 
 Внешнюю задержку также можно делать лежа, положив под голову по душку ([фот 77](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
 
-### Результаты
+###
+Результаты
 
 Бахья кумбхака особенно хороша для людей, излишне напряженных и страдающих повышенным кровяным давлением. Она вызывает пассивное состояние, ощущение спокойствия, как будто человек — пустой сосуд, плавающий по воде. Однако она не рекомендуется людям, страдающим от депрессий, меланхолии и низкого кровяного давления.
 
-## Ступень XI
+##
+Ступень XI
 
 Это внутренняя задержка (ангара кумбхака) для продвинутых учеников.
 
-### Техника
+###
+Техника
 
 1. Сядьте в любую удобную позу, следуя технике, описанной в пунктах 1-7 ступени V, и выдохните из легких весь воздух (фот. 96).
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA-5cCTnGfD15rPYmAfkSxP1qpfKfhXgrlPzvpMAoqwZgMt8KLOe_JO9fuINIi9rvx_geysrTePXAkpQ25kaFAt0CdBYn8nPLQ0Cd-z75Oh01mz7Rz6QcMMtzRW_7ulQMSVBQia9_S2sU/) |
-| Фото 100 |
+Фото 100
 
-  
+Фото 101
 
-|  |
-| --- |
-| Б. К. С. АЙЕНГАР |
-| Фото 101 |
-
-  
-
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/) |
-| Фото 102 |
+Фото 102
 
 2. Сделайте сильный глубокий вдох, без насилия, резких толчков или жесткости, сохраняя состояние туловища под контролем,
 
@@ -446,20 +391,22 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 На этой ступени акцент делается на задержке, л не на вдохе и выдохе.
 
-### Результаты
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOYW76PaCebm6DyEcSlv84e8jyODoD5hy5Bo-KZvweBGqcxx33NpgljFQ0DoQ4lnMtgMex43zTq1maZn8y7AJjh2tRN4kAe_QkW4c7AdxH8RQP2mZMCCuJ7auyXpROogvNn0a14Ko1rKI/w405-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE102.jpg "Б. К. С. АЙЕНГАР")
+
+###
+Результаты
 
 Эта ступень хороша для людей, страдающих от вялости, тошнота и физической утомляемости. Она поддерживает тепло тела, удаляет флегму, порождает веселость и уверенность. Она ведет к улучшению концентрации. Неправильная практика вызывает раздражение, волнение, вспыльчивость и истощение.
 
-## Ступень ХМ
+##
+Ступень ХМ
 
 Это — внутренняя задержка (бахья кумбхака) для продвинутых учеников.
 
-### Техника
+###
+Техника
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL9mlqrbXRkNhhCc6vjytCmtgDfcJmysnTNu6HUUeeHKbsuuLHZEvkohQwE0YFlLPT0SGoxfBf0RIxjZt38P_PaeuSUufwkyF9UHAB3yErTgKx9pK77c1uQiBq3bhX6MapdqjNV4zsRDc/) |
-| фото 103 |
+фото 103
 
 1, Сядьте в любую удобную позу, следуя технике, данной в пунктах 1 — 7 ступени V, и выдохните (фот. 96).
 
@@ -475,24 +422,26 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 7. По мере совершенствования увеличивайте продолжительность задержки после выдоха. Продолжительность задержки индивидуальна. Увеличивайте ее в соответствии со своими возможностями.
 
-|  |
-| --- |
-| ![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/) |
-| Фото 104 |
+Фото 104
 
-8. Никогда не выдыхайте во время уддийяна бандхи, так как это может вызвать удушье и перенапряжение сердца.
+ 8. Никогда не выдыхайте во время уддийяна бандхи, так как это может вызвать удушье и перенапряжение сердца.
 
 9. В начале рекомендуется выполнять внешнюю задержку после интервала в три-четыре глубоких дыхания.
 
-### Результаты
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi9OBrFh9zLiJ6uLjLlNFnuX0NNVC-8EXIwtRicClp3S8X1c7NOdGgPGRc5dgH1cz4MQs2bIkjyYO876cinkPPubygOfFfxqsfrYuUZfQS67BIpmprrOloB0hx6c9jOtlynz_PG-xLeViI/w478-h640-rw/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE104.jpg "Б. К. С. АЙЕНГАР")
+
+###
+Результаты
 
 Эта ступень очищает абдоминальные органы к предупреждает их выпадение.
 
-## Ступень XIII
+##
+Ступень XIII
 
 Эта продвинутая ступень совмещает внутреннюю (антара) и внешнюю (бахья) задержки (кумбхаки) с двумя или тремя вдохами и выдохами.
 
-### Техника
+###
+Техника
 
 1. Сперва выдохните (фот. 96).
 
@@ -502,27 +451,24 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 4. Выдохните и сделайте два или три глубоких вдоха и выдоха. Затем повторите циклы кумбхаки, выполняя после каждого два-три глубоких вдоха и выдоха.
 
-5 Выполните пять-шесть циклов, завершив все вдохом. Затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)).
+5 Выполните пять-шесть циклов, завершив все вдохом. Затем лягте в шавасану ([фот. 182](https://joga.blagorussia.ru/2020/06/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html)). 
 
-## Таблица Удджайи Пранаямы
+##
+Таблица Удджайи Пранаямы
 
-|  |  |  |  |  |  |  |  |  |  |
-| --- | --- | --- | --- | --- | --- | --- | --- | --- | --- |
-| Ступень | Пурака |  | Антара |  | Кумбхака | Речака |  | Бахья Кумбхака |  |
-|  | Н | Г | Без МБ | МБ |  | Н | Г | БезУБ | УБ |
-| лежа I | ° |  |  |  |  | ° |  |  |  |
-| П | ° |  |  |  |  |  | ° |  |  |
-| III |  | ° |  |  |  | ° |  |  |  |
-| IV |  | ° |  |  |  |  | ° |  |  |
-| Сидя V | ° |  |  |  |  | ° |  |  |  |
-| VI | ° |  |  |  |  |  | ° |  |  |
-| VII |  | ° |  |  |  | ° |  |  |  |
-| VIII |  | ° |  |  |  |  | ° |  |  |
-| IX | ° |  | HC |  |  | ° |  |  |  |
-| X | ° |  |  |  |  |  | ° | СВД |  |
-| XI |  | СГ | ° | 10—15 с |  | Н или Г |  |  |  |
-| XII | ° |  |  |  |  |  | СГ |  | СВД |
-| XIII |  | СГ |  | 10-15 с |  |  | НилиГ |  | СВД |
+ Ступень  Пурака Антара  Кумбхака  Речака  Бахья Кумбхака 
+ Н Г  Без МБ МБ Н Г БезУБ  УБ
+ лежа I ° °
+ П ° °
+ III ° °
+ IV ° °
+ Сидя V ° °
+ VI ° °
+ VII ° °
+ VIII ° °
+ IX ° HC ° X °      ° СВД   XI  СГ ° 10—15 с   Н или Г    XII °      СГ  СВД  XIII  СГ  10-15 с   НилиГ  СВД
+
+ 
 
 Г — глубокий
 
@@ -538,4 +484,4 @@ url: "/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar/"
 
 УБ — уддайана бандха
 
-[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
+[Предыдущая](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html) <<<[ Следующая](https://joga.blagorussia.ru/2020/05/glava-20-viloma-pranayalla-b-k-s-ajengar.html)
