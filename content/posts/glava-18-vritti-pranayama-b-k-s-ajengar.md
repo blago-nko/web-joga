@@ -5,18 +5,19 @@ aliases:
   - "/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html"
 url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 ---
-
-[![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg "Б. К. С. АЙЕНГАР")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg)
-
 [Предыдущая](https://joga.blagorussia.ru/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html)
 
-## Глава 18. Вритти Пранаяма
+![Б. К. С. АЙЕНГАР](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjp8CKmQulaNiX9-TrJEJ28kad0OzrtkvrP2kdHadpozwrTeOxUtqs2XTiv-StkseK8Oorja6NYQ73avcDxuETYRL7GNc1bJjDirajtLTdsYhBWVyI7cvWOBdnTS5d3g7fq1QV4nBeUtY4/s640-rw/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580130.jpg "Б. К. С. АЙЕНГАР")
+
+##
+Глава 18. Вритти Пранаяма
 
 1. Вритти означает действие, движение, курс следования или метод.
 
 2. Существует два типа вритти пранаямы: самавритти и висамавритти. Самавритти имеет место, если продолжительность каждого вдоха, выдоха и задержки дыхания одинаковы, и висамавритги — если эта продолжительность изменяется и различна.
 
-### Самавритти Пранаяма
+###
+Самавритти Пранаяма
 
 3. «Сама» означает равный, идентичный или одинаковый способ. В самавритти пранаяме делается попытка достичь одинаковой продолжительности всех четырех процессов дыхания: вдоха (пу-раха), задержки (антара кумбхака), выдоха (речака) и задержки (бахья кумбхака). Если продолжительность пураки пять или десять секунд, такой же должна быть и продолжительность речаки и кумбхаки.
 
@@ -38,7 +39,8 @@ url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 
 12. Постепенно уменьшайте число промежуточных циклов. Затем выполните пураку, антара кумбхаку, речаку и бахъя кумбхаку без промежуточных циклов.
 
-### Висамавритти Пранаяма
+###
+Висамавритти Пранаяма
 
 13. Висама означает неравномерный, несимметричный. Висамавритти пранаяма называется так потому, что продолжительность пураки, антара кумбхаки, речаки и бахъя кумбхаки варьируют. Это ведет к прерывистому ритму, и разности в пропорции порождают трудности и опасность для учеников, если они не одарены крепкими нервами и хорошими легкими.
 
@@ -54,7 +56,8 @@ url: "/glava-18-vritti-pranayama-b-k-s-ajengar/"
 
 19. Продолжительность процессов может изменяться в висамавритти пранаяме в различных соотношениях, как, например, 1: 2: 4: 1/2, 2 • 4 : 1/2: 1,4: 1/2: 2 : 1, 1/2: 1: 4: 2. Изменения и комбинации в висамавритти пранаяме многочисленны и ни один смертный не может выполнить все возможные комбинации за свою жизнь. Пример таких изменений и комбинаций дан в примечаниях к сурья и чандра бхедана пранаямам в [гл. 27](https://joga.blagorussia.ru/2020/06/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html).
 
-#### Примечание
+####
+Примечание
 
 20. Путь висамавритти пранаямы чреват опасностями. Поэтому не практикуйте ее самостоятельно, без личного наблюдения опытного гуру.
 
