@@ -5,9 +5,17 @@ aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie.html"
 url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gordynya-i-vozhdelenie/"
 ---
+
 [![Айенгар ](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg003H_HM48NmRKy7QRZFSWqDErDjhsH2Fm7-qfFle4MFsJu0CNnKIHk-7BWqUPiGSmXQDbs3-Wy3cbjCpmzN5BRmO4JtAO9PuynB5AkhBXYUbSoe2Dm-GFtJmLX3F7GEmWREZDRVK2mes/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258065.jpg "Айенгар ")](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg003H_HM48NmRKy7QRZFSWqDErDjhsH2Fm7-qfFle4MFsJu0CNnKIHk-7BWqUPiGSmXQDbs3-Wy3cbjCpmzN5BRmO4JtAO9PuynB5AkhBXYUbSoe2Dm-GFtJmLX3F7GEmWREZDRVK2mes/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258065.jpg)
+
+  
+
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gnev.html)
+
 ## Гордыня и вожделение
+
 Самое страшное в нервных недугах – это то, что в них участвует эго. Без эго вы можете ненавидеть несправедливость, как это делал Ганди в Южной Африке. Без эго можно превратить гордыню в гордость и сделать ее достоинством. Йегуди Менухин был скромен даже перед лицом своих творений, равно как и я, но это не мешает нам гордиться плодами своих достижений. Мы просто не вовлекаем в это свое эго, это дар, божья милость, которыми мы можем поделиться. Вожделение можно объяснить как безрассудную страсть или зависимость – все состояния, в которых эго оказывается порабощенным. Еще одно удачное для этого определение – фанатизм. И я, и Йегуди Менухин отдавались своему искусству со всей страстью. Но мы же не были фанатиками по отношению к другим людям. Наше эго не пыталось контролировать и принуждать к чему-то остальных. Страсть к совершенству – это одно. Припирать к стенке кого-то своими убеждениями – это уже эгоизм и гордыня.  
+  
 Путь йогина непрост и требует почти что фанатичной преданности, что без труда заметят сторонние наблюдатели. Я фанатичен к себе, когда практикую, это правда. Но стоит быть фанатичным к себе, а не к другим. Мой гуру был таким ко всем, включая меня. Он применял свои стандарты к любому человеку. Я пытаюсь узнать, на что способны мои студенты, чтобы помочь им максимально раскрыть свой  потенциал, а не мой. Я буду более подробно рассматривать эго и гордыню в пятой главе, поскольку они являются частью бед, понять которые необходимо для понимания йоги. Вожделение как привычные навязчивые шаблоны поведения подробно рассмотрены в четвертой главе.  
+
 [Предыдущая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pohot.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html) <<< [Следующая](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-gnev.html)
