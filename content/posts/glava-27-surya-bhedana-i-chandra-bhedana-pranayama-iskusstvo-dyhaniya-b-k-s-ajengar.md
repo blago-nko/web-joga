@@ -147,17 +147,11 @@ XVI: Прерывистый вдох, внутренняя задержка, п�
 
 ### Таблица Сурья Бхедана Пранаямы
 
- Ступень Пурака Антара Кумбхака
-
- Речака Бахйа Кумбхака  ПН МБ ЛН УБ I °  °  II
-
- ° 15 -20 сек °  III °  ° НВД IV ° 15—20 сек ° 8—10 сек
+<table border="1" bordercolor="#888" cellspacing="0" style="border-collapse: collapse; border-color: rgb(136, 136, 136); border-width: 1px;"><tbody><tr><td> Ступень</td><td> Пурака</td><td> Антара Кумбхака<br /></br></td><td> Речака</td><td> Бахйа Кумбхака</td></tr><tr><td> </td><td> ПН</td><td> МБ</td><td> ЛН</td><td> УБ</td></tr><tr><td> I</td><td> °</td><td> </td><td> °</td><td> </td></tr><tr><td> II<br /></br></td><td> °</td><td> 15 -20 сек</td><td> °</td><td> </td></tr><tr><td style="min-width: 60px;"> III</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> </td><td style="width: 60px;"> °</td><td style="min-width: 60px;"> НВД</td></tr><tr><td style="min-width: 60px;"> IV</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> 15—20 сек</td><td style="width: 60px;"> °</td><td style="min-width: 60px;"> 8—10 сек</td></tr></tbody></table>
 
 ### Таблица Чандра Бхедана Пранаямы
 
- Ступень Пурака Антара Кумбхака Речака Бахйа Кумбхака  ЛН МБ ПН УБ I °  °  II
-
- ° 15—20 сек °  III °  ° НВД IV °' 15—20 сек ° 8 -10 сек
+<table border="1" bordercolor="#888" cellspacing="0" style="border-collapse: collapse; border-color: rgb(136, 136, 136); border-width: 1px;"><tbody><tr><td> Ступень</td><td> Пурака</td><td> Антара Кумбхака</td><td> Речака</td><td> Бахйа Кумбхака</td></tr><tr><td> </td><td> ЛН</td><td> МБ</td><td> ПН</td><td> УБ</td></tr><tr><td> I</td><td> °</td><td> </td><td> °</td><td> </td></tr><tr><td style="width: 60px;"> II<br /></br></td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> 15—20 сек</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> </td></tr><tr><td> III</td><td> °</td><td> </td><td> °</td><td> НВД</td></tr><tr><td style="width: 60px;"> IV</td><td style="min-width: 60px;"> °'</td><td style="min-width: 60px;"> 15—20 сек</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> 8 -10 сек</td></tr></tbody></table>
 
 ЛН — левая ноздря
 
