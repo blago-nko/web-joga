@@ -1,5 +1,5 @@
 ---
-title: "'Глава 7. Пища - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Глава 7. Пища - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-02-22
 aliases:
   - "/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html"

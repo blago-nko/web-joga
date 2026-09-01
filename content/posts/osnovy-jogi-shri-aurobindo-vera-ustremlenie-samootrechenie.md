@@ -1,5 +1,5 @@
 ---
-title: "'ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ВЕРА– УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ'"
+title: "ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ВЕРА– УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ"
 date: 2019-11-03
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-vera-ustremlenie-samootrechenie.html"

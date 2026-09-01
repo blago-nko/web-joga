@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога как искусство'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога как искусство"
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-kak-iskusstvo.html"

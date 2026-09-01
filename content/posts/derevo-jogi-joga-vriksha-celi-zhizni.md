@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цели жизни'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цели жизни"
 date: 2019-10-23
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-celi-zhizni.html"

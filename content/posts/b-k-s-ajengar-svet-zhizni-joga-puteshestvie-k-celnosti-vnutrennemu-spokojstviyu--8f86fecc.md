@@ -1,5 +1,5 @@
 ---
-title: "'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Расслабление: каждая поза должна дышать покоем'"
+title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Расслабление: каждая поза должна дышать покоем"
 date: 2019-11-16
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-rasslablenie-kazhdaya-poza-dolzhna-dyshat-pokoem.html"

@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Б. К. С. Айенгар"
 date: 2019-10-21
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html"

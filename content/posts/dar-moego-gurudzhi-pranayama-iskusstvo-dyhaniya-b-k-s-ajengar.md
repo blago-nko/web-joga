@@ -1,5 +1,5 @@
 ---
-title: "'Дар моего Гуруджи - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Дар моего Гуруджи - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2019-12-29
 aliases:
   - "/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

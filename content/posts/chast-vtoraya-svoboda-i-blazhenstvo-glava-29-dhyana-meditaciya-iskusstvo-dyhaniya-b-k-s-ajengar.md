@@ -1,5 +1,5 @@
 ---
-title: "'Часть Вторая Свобода и блаженство Глава 29. Дхьяна (Медитация) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Часть Вторая Свобода и блаженство Глава 29. Дхьяна (Медитация) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-27
 aliases:
   - "/2020/06/chast-vtoraya-svoboda-i-blazhenstvo-glava-29-dhyana-meditaciya-iskusstvo-dyhaniya-b-k-s-ajengar.html"
