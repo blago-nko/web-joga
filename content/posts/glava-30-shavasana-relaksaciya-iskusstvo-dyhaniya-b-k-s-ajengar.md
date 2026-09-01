@@ -155,7 +155,7 @@ url: "/glava-30-shavasana-relaksaciya-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 19.  **Уши**. Уши играют важную роль как в шавасане, так и в Пранаяме. В то время как глаза сохраняют пассивность, уши должны быть спокойны и восприимчивы. Как напряжение, так и расслабление воздействуют на ум, и ум, в свою очередь, воздействует на них. Местопребывание интеллекта голова, в то время как ум укоренен в сердце. Когда ум и интеллект взволнованы мыслями, внутренний слух теряет восприимчивость. Тщательной тренировкой этот процесс можно повернуть вспять, слух может послать приказ остановить колебания, и ум таким образом успокоится. Если глаза сохраняют напряжение, уши становятся заблокированными, если же глаза расслаблены, то расслабляются и уши.
 
-<figcaption>Фото 178</figcaption>
+<table align="center" cellpadding="0" cellspacing="0" class="tr-caption-container" style="margin-left: auto; margin-right: auto;"><tbody><tr><td style="text-align: center;"><br /></br></td></tr><tr><td class="tr-caption" style="text-align: center;">Фото 178</td></tr></tbody></table>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFDF56sQCacWMXdHiDZn-z2SaaYceaQ2ckjxdLnJtQleONbykYjoSroF7EazBgGBHkfPYKP_N9HuoWOfzWZ9BF6LnVIu4PotV9NGsNd3CPbykKSc51JRP1tei8-cfpj98jsaVtJV-MCk0/s1600/%25D0%25A4%25D0%25BE%25D1%2582%25D0%25BE179.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"><figcaption>Фото 179</figcaption></figure>
 

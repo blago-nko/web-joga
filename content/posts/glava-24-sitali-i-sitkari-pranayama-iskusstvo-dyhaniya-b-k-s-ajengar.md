@@ -99,19 +99,11 @@ url: "/glava-24-sitali-i-sitkari-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 #### Сигали
 
- Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯС Без МБ МБ Г I ° ° Оба варианта
-
-(МБ 5—10 сек) Оба варианта
-
-(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
+<table border="1" bordercolor="#888" cellspacing="0" style="border-collapse: collapse; border-color: rgb(136, 136, 136); border-width: 1px;"><tbody><tr><td style="min-width: 60px;"> Ступень</td><td style="width: 60px;"> Пурака,</td><td style="min-width: 60px;"> Пурака,</td><td style="min-width: 60px;"> Антара Кумбхака</td><td style="min-width: 60px;"> Антара Кумбхака</td><td style="width: 60px;"> Речака</td></tr><tr><td> </td><td> Голова</td><td> Прямая</td><td> ДБ</td><td> </td><td style="width: 60px;"> </td></tr><tr><td> </td><td> Г</td><td> ЯС</td><td> Без МБ</td><td> МБ</td><td style="width: 60px;"> Г</td></tr><tr><td> I</td><td> °</td><td> °</td><td> Оба варианта<br /></br>(МБ 5—10 сек)</td><td> Оба варианта<br /></br>(МБ 5—10 сек)</td><td> НО</td></tr><tr><td style="min-width: 60px;"> II</td><td style="width: 60px;"> °</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> </td><td style="min-width: 60px;"> °</td><td style="width: 60px;"> ОНЧЗ</td></tr><tr><td> III</td><td> °</td><td> °</td><td> </td><td> °</td><td> НЧЗП</td></tr></tbody></table>
 
 #### Ситкари
 
- Ступень Пурака, Пурака, Антара Кумбхака Антара Кумбхака Речака  Голова Прямая ДБ    Г ЯР Без МБ МБ Г I ° ° Оба варианта
-
-(МБ 5—10 сек) Оба варианта
-
-(МБ 5—10 сек) НО II ° °  ° ОНЧЗ III ° °  ° НЧЗП
+<table border="1" bordercolor="#888" cellspacing="0" style="border-collapse: collapse; border-color: rgb(136, 136, 136); border-width: 1px;"><tbody><tr><td style="min-width: 60px;"> Ступень</td><td style="width: 60px;"> Пурака,</td><td style="min-width: 60px;"> Пурака,</td><td style="min-width: 60px;"> Антара Кумбхака</td><td style="min-width: 60px;"> Антара Кумбхака</td><td style="width: 60px;"> Речака</td></tr><tr><td> </td><td> Голова</td><td> Прямая</td><td> ДБ</td><td> </td><td style="width: 60px;"> </td></tr><tr><td> </td><td> Г</td><td> ЯР</td><td> Без МБ</td><td> МБ</td><td style="width: 60px;"> Г</td></tr><tr><td> I</td><td> °</td><td> °</td><td> Оба варианта<br /></br>(МБ 5—10 сек)</td><td> Оба варианта<br /></br>(МБ 5—10 сек)</td><td> НО</td></tr><tr><td style="min-width: 60px;"> II</td><td style="width: 60px;"> °</td><td style="min-width: 60px;"> °</td><td style="min-width: 60px;"> </td><td style="min-width: 60px;"> °</td><td style="width: 60px;"> ОНЧЗ</td></tr><tr><td> III</td><td> °</td><td> °</td><td> </td><td> °</td><td> НЧЗП</td></tr></tbody></table>
 
 Г — глубокий
 
