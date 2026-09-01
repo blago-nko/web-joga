@@ -1,5 +1,5 @@
 ---
-title: "ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ФИЗИЧЕСКОЕ СОЗНАНИЕ – ПОДСОЗНАТЕЛЬНОЕ – СОН И СНОВИДЕНИЯ – БОЛЕЗНЬ"
+title: 'ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ФИЗИЧЕСКОЕ СОЗНАНИЕ – ПОДСОЗНАТЕЛЬНОЕ – СОН И СНОВИДЕНИЯ – БОЛЕЗНЬ'
 date: 2019-11-03
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-fizicheskoe-soznanie-podsoznatelnoe-son-i-snovideniya-bolezn.html"

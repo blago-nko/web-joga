@@ -1,5 +1,5 @@
 ---
-title: "Авторы книг и статей по йоге"
+title: 'Авторы книг и статей по йоге'
 date: 2019-11-07
 aliases:
   - "/2019/11/avtory-knig-i-statej-po-joge.html"

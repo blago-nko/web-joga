@@ -1,5 +1,5 @@
 ---
-title: "Глава 3. Прана и Пранаяма - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Глава 3. Прана и Пранаяма - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-01-25
 aliases:
   - "/2020/01/glava-3-prana-i-pranayama-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

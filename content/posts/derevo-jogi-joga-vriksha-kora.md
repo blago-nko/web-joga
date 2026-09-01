@@ -1,5 +1,5 @@
 ---
-title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Кора"
+title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Кора'
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-kora.html"

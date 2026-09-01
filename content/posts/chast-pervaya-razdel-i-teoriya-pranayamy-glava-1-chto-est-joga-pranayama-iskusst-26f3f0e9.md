@@ -1,5 +1,5 @@
 ---
-title: "Часть первая Раздел I. Теория Пранаямы Глава 1. Что есть Йога? - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Часть первая Раздел I. Теория Пранаямы Глава 1. Что есть Йога? - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-01-10
 aliases:
   - "/2020/01/chast-pervaya-razdel-i-teoriya-pranayamy-glava-1-chto-est-joga-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

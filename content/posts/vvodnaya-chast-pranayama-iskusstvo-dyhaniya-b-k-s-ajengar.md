@@ -1,5 +1,5 @@
 ---
-title: "Вводная часть - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Вводная часть - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-01-10
 aliases:
   - "/2020/01/vvodnaya-chast-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

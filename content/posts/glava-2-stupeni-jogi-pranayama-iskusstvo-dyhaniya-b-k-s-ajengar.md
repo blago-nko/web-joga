@@ -1,5 +1,5 @@
 ---
-title: "Глава 2. Ступени Йоги - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Глава 2. Ступени Йоги - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-01-24
 aliases:
   - "/2020/01/glava-2-stupeni-jogi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

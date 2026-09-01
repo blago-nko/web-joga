@@ -1,5 +1,5 @@
 ---
-title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога есть единство"
+title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога есть единство'
 date: 2019-10-21
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-est-edinstvo.html"

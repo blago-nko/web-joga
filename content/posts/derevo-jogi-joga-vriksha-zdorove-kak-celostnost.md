@@ -1,5 +1,5 @@
 ---
-title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Здоровье как целостность"
+title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Здоровье как целостность'
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-zdorove-kak-celostnost.html"

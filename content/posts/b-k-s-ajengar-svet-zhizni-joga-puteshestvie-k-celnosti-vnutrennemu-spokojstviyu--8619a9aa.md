@@ -1,5 +1,5 @@
 ---
-title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Осознанность: превратить в око каждую пору своей кожи"
+title: 'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Осознанность: превратить в око каждую пору своей кожи'
 date: 2019-11-16
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-osoznannost-prevratit-v-oko-kazhduyu-poru-svoej-kozhi.html"
