@@ -9,13 +9,9 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgs_vcJQ3IudjVmHzvbWzClE0vlZet4lcIQPPGcjURQ9duqhSXhg2Ttr0yicn5pjEyuweufjkZ8aNMA23QjFYyK7-eIEeUi3Mb9iB8Z8Qns3-P-dhVIrM5Bvn78X7D-aNXNylzWCthGJDQ/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258061.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
+## Глава III
 
-Глава III
-
-### 
-
-Витальность: энергетическое тело (прана)
+### Витальность: энергетическое тело (прана)
 
 Всем бы хотелось увеличить количество своей жизненной энергии. Если бы ее можно было продавать в магазине на развес, это был бы самый удачный бизнес за всю историю человечества. Даже простые разговоры об энергии воодушевляют и приободряют людей. Они бы все отдали, чтобы иметь гораздо больше энергии. На самом деле, конечно, это не та вещь, которую в принципе можно купить за деньги.
 

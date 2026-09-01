@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinPjQKn2ZbTaMyT7YkSalp8dAwEWXzq_iLXMtTHVlGgB-hoGyHuQ9enPKRfbMf1YHGLXwyFAUyA9sx7mPKFpmKCQ9GUFwYBtdXxb7iu5lyJXlIaMTicQShqgVYVZTrk5UEryK_T7w3Yig/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258045.jpg" alt="Айенгар" title="Айенгар">
 
-## 
-
-Ваше собственное Путешествие
+## Ваше собственное Путешествие
 
 Вся эта книга – о Жизни. Это попытка осветить ваш путь и путь других искателей, предоставив им некоторые ключи.
 

@@ -7,9 +7,7 @@ url: "/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 ---
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimXtwSRWEjKRWdA_9l4E7E5Ol0Yk9GrDl5H6J4fWtHIU6c-zbe3Bkqv4x08piT0TxJNXY62U8-2e3mX9SvWvmkJzqZWLPXfMJwWjLfUAaKPp6vUjnKG8DWkA29vtzA94u-xXTuIxeUR-4/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258082.jpg" alt="Б. К. С. Айенгар" title="Б. К. С. Айенгар">
 
-## 
-
-ОГЛАВЛЕНИЕ
+## ОГЛАВЛЕНИЕ
 
 [МОЛИТВА](https://joga.blagorussia.ru/2019/12/molitva-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 

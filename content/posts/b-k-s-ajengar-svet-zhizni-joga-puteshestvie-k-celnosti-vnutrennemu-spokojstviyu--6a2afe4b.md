@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYR-UpRoAvfsdnQq0AZGBI7_qhzeCBZBQuLY_PlKypB1J5744A3f9uc-ZfQoJ1u8ezwarv8HuOCgNX84VjdAc41w8s6aHhU3TpOfNjt877Ngv8Ijtl50r-Q2sny1OHEARaAFgsqMYu0Oc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580101.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
-
-Четыре Жизненных Этапа (ашрама) 
+## Четыре Жизненных Этапа (ашрама) 
 
 Четыре Жизненные Цели тесно взаимосвязаны с Четырьмя Жизненными Этапами (ашрама ). Это естественные и простые тенденции, которые предстоит испытать всем, кому выпадет счастливая карта прожить достаточно долгую жизнь. Для кого-то это пристанища, которые позволят нам исполнить все жизненные цели и позволят реке течь между оберегающих ее берегов.
 

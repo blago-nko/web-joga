@@ -9,9 +9,7 @@ url: "/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-aj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFLpczlM2_5U5mpbv2ikhi-dwl23uQ-J7zHiDgMNATdiqkeKs-D83CLRXq7PNcwQRu2xUnDnaBT-Kugwo6DuuAouuiXTXFCGM6GdWJyk2xPCPwCgMrGzw3HavG03tp6BVL76otqzkWZhU/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580127.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
-## 
-
-Глава 12. Искусство подготовки ума к Пранаяме
+## Глава 12. Искусство подготовки ума к Пранаяме
 
 > 
 

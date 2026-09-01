@@ -7,9 +7,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 ---
 [Предыдущая](https://joga.blagorussia.ru/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-zhizn-ehto-ucheba.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-oglavlenie.html)
 
-## 
-
-Асаны для Эмоциональной Устойчивости 
+## Асаны для Эмоциональной Устойчивости 
 
 Выполнив данную серию асан для эмоциональной устойчивости, вы сможете полностью расслабиться. Стрелочками на рисунке показаны направления натяжения. Для детальных инструкций вы можете обратиться к более ранней моей книге «Прояснение Йоги». Я также порекомендовал бы вам заниматься под руководством опытного и квалифицированного преподавателя. Важно четко следовать его указаниям для получения желаемых результатов и во избежание вреда.
 

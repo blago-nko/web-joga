@@ -7,9 +7,7 @@ url: "/derevo-jogi-joga-vriksha-b-k-s-ajengar/"
 ---
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjs0CzOItyyztYo4BlLqjN2QiiVNi-nVZsljLbgkFVatSr381WeoEhFNIIoX2d3EGYlMA_81Os3pLVzFSvRj9D_pWYwXubi4P8trAEaomPuBBGEEki_dCDZcRVgpYln5Y_Nmjj7czT-Wkc/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580.jpg" alt="Беллур Кришнамачар Сундарараджа Айенгар" title="Беллур Кришнамачар Сундарараджа Айенгар"><figcaption>Беллур Кришнамачар Сундарараджа Айенгар</figcaption></figure>
 
-## 
-
-Предисловие
+## Предисловие
 
 Друзья и последователи,
 
@@ -27,15 +25,11 @@ url: "/derevo-jogi-joga-vriksha-b-k-s-ajengar/"
 
 Посмотрите на небо. Небо и конечно и бесконечно одновременно. Никто не может коснуться его, хотя мы постоянно соприкасаемся с ним. Подобным образом вам и мне приходится использовать конечные средства - тело, ум, рассудок и сознание, - чтобы достичь бесконечной обители души - матери всех этих средств. На этом пути мы остаемся вечно открытыми, вечно умиротворенными, вечно развивающимися.
 
-#### 
-
-Да благословит вас всех Бог!
+#### Да благословит вас всех Бог!
 
 Б.К.С. Айенгар
 
-### 
-
-ОГЛАВЛЕНИЕ
+### ОГЛАВЛЕНИЕ
 
 - [Йога есть единство](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-joga-est-edinstvo.html)
 

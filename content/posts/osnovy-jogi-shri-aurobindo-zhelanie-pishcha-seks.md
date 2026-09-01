@@ -9,9 +9,7 @@ url: "/osnovy-jogi-shri-aurobindo-zhelanie-pishcha-seks/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjCs2m2iAxGv_s-IJonKgENnkTSuzKAbZIa_Ccq5C2fwkEiiOi-y4_8up_zQU0YXKAX6pNqVRufCd4QR0X0uhx4xeFZH0Bn2_fVmQ0RVkt5Om9vVTSqUQcFymsroN33e5H6A0FhqM08fao/s1600/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE4.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
 
-## 
-
-IV ЖЕЛАНИЕ – ПИЩА – СЕКС
+## IV ЖЕЛАНИЕ – ПИЩА – СЕКС
 
 Все обычные витальные движения не относятся к нашему истинному существу и приходят извне; они не принадлежат душе и не возникают в ней, но представляют собой волны общей Природы, Пракрити.
 

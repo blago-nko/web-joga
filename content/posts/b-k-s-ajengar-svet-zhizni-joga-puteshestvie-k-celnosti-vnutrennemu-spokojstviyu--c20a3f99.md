@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr5Lg6T88EmBkJpubK8uHLw2lSYk-regvpkdDqK4VMUGYc42JhYo_M2wLOD_BLcR8ZqwRByhQERvd3ijmIrXRRVQmpwB6w4V15zh4QJqCmSGwE7EvE5P-Ciu11XNCPCZqqdH6YrvzWPrg/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580102.jpg" alt="Айенгар" title="Айенгар">
 
-## 
-
-Универсальная и личная этика 
+## Универсальная и личная этика 
 
 Как мы уже поняли, для йога природа и дух неотделимы. Эволюция – или инволюция – которой мы достигли, открыв свою душу, теперь проявится в нашем теле и нашей жизни. На самом деле, духовно вырасти невозможно без увеличения моральной и этической осознанности. Постепенно мы должны переделать себя таким образом, чтобы действовать в этой жизни, не запутываясь в своих поступках.
 

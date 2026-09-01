@@ -9,9 +9,7 @@ url: "/osnovy-jogi-shri-aurobindo-vera-ustremlenie-samootrechenie/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjpEonrlY4iZFcEgWI6_Ts_Qr4b4lX7rrgGQ0pNIHz0ULph1UyrtEQ3kjIQw4poPkudP0D0w2VdSSFiPJPoqlu8hmJ6p2aWfmvblo_jQ9mpwDSP30Pct9BPSB32d6AH9Hvm_D3zjRQtbT4/s1600/%25D0%25A8%25D1%2580%25D0%25B8+%25D0%2590%25D1%2583%25D1%2580%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%25D0%25B4%25D0%25BE2.jpg" alt="ШРИ АУРОБИНДО" title="ШРИ АУРОБИНДО">
 
-## 
-
-II ВЕРА – УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ
+## II ВЕРА – УСТРЕМЛЕНИЕ – САМООТРЕЧЕНИЕ
 
 Эта Йога требует, чтобы вся жизнь без остатка была посвящена исключительно стремлению раскрыть и воплотить Божественную истину. Недопустимо делить свою жизнь между Божественным и какой-то иной целью и деятельностью, не имеющей ничего общего с поиском Истины. Наималейшее поползновение такого рода обрекло бы Йогу на неудачу.
 
