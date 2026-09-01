@@ -1,5 +1,5 @@
 ---
-title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глубина асаны'''
+title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глубина асаны'"
 date: 2019-10-24
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html"
@@ -27,7 +27,7 @@ url: "/derevo-jogi-joga-vriksha-glubina-asany/"
 
 Эта интеграция, описываемая Патанджали в третьей части "Йога Сутр". Интеграция означает единение тела (шарира-саЗйьяма), единение дыхания (прана-самьяма), единение ощущений (индрия-самьяма), единение ума (манах-самьяма), единение рассудка или высшего знания (буддхи-самьяма или джняна-самьяма) и, наконец, единение нашей внутренней сути со всем сущим (атма-самьяма).
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgp6WtwH_AIQOn_wPABq0haT_0s7OcdLFgK5v1qFm623gjer1F4e4lLEQgh4uJb503S_rYw_PCWR0q32a2hJyN2qs3nuv1ZPHrwXbktq19-HLl0eHfN3m80nBVU7aA_33Yjpabpj8WPBi0/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258012.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
+<a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOB4AaRd_gcJMSg7fO7PWVSx6NzTqSEnoR4NiUjLoeGtB1OnHVI38Oofsni-Sngb4s4YMFxS2Djr8xm4u7RbPoCPOvFvZX0BoMkCbdObtujsZy2G4GqZS-KJj_1anOv7tgEXGYoePcDIk/s1600/%25D0%25B8%25D0%25BD%25D1%2582%25D0%25B5%25D0%25B3%25D1%2580%25D0%25B0%25D1%2586%25D0%25B8%25D1%258F.jpg"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgp6WtwH_AIQOn_wPABq0haT_0s7OcdLFgK5v1qFm623gjer1F4e4lLEQgh4uJb503S_rYw_PCWR0q32a2hJyN2qs3nuv1ZPHrwXbktq19-HLl0eHfN3m80nBVU7aA_33Yjpabpj8WPBi0/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258012.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР"></a>
 
 Вот как нужно выполнять асаны. Это не может прийти за один день и даже за многие годы. Это процесс, который длится всю жизнь, при условии, что практикующий поддерживается "витаминами" йоги: верой, памятью, решимостью, поглощенностью и непрерывной осознанностью внимания. Это пять витаминов, необходимых в практике йоги. С помощью этих пяти качеств вы сможете покорить пять оболочек тела и стать единым целым с Абсолютной Сутью.
 

@@ -1,5 +1,5 @@
 ---
-title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий'''
+title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глоссарий'"
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-glossarij.html"

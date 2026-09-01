@@ -1,5 +1,5 @@
 ---
-title: '''ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ЗАТРУДНЕНИЯ'''
+title: "'ОСНОВЫ ЙОГИ - ШРИ АУРОБИНДО - ЗАТРУДНЕНИЯ'"
 date: 2019-11-03
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-zatrudneniya.html"

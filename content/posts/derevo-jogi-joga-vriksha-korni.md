@@ -1,5 +1,5 @@
 ---
-title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Корни'''
+title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Корни'"
 date: 2019-10-26
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-korni.html"

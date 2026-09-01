@@ -1,5 +1,5 @@
 ---
-title: '''ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. Айенгар'''
+title: "'ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. Айенгар'"
 date: 2019-12-27
 aliases:
   - "/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

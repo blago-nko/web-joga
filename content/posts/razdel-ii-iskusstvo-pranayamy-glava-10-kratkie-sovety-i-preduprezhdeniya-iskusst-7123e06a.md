@@ -1,5 +1,5 @@
 ---
-title: '''Раздел II. Искусство Пранаямы Глава 10. Краткие советы и предупреждения - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'''
+title: "'Раздел II. Искусство Пранаямы Глава 10. Краткие советы и предупреждения - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
 date: 2020-03-22
 aliases:
   - "/2020/03/razdel-ii-iskusstvo-pranayamy-glava-10-kratkie-sovety-i-preduprezhdeniya-iskusstvo-dyhaniya-b-k-s-ajengar.html"

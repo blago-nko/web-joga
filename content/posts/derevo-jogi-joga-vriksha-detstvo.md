@@ -1,5 +1,5 @@
 ---
-title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Детство'''
+title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Детство'"
 date: 2019-10-23
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-detstvo.html"
