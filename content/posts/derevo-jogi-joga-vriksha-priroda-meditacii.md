@@ -1,5 +1,5 @@
 ---
-title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Природа медитации"
+title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Природа медитации'
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-priroda-meditacii.html"

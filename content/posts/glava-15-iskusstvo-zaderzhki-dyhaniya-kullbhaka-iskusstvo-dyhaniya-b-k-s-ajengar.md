@@ -1,5 +1,5 @@
 ---
-title: "Глава 15. Искусство задержки дыхания (Куллбхака) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Глава 15. Искусство задержки дыхания (Куллбхака) - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-03-30
 aliases:
   - "/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html"

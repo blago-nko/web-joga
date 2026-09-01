@@ -1,5 +1,5 @@
 ---
-title: "Предисловие -  - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Предисловие -  - ПРАНАЯМА ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-01-04
 aliases:
   - "/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html"

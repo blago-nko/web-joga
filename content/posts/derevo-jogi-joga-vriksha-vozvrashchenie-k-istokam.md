@@ -1,5 +1,5 @@
 ---
-title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Возвращение к истокам"
+title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Возвращение к истокам'
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-vozvrashchenie-k-istokam.html"

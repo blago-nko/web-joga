@@ -1,5 +1,5 @@
 ---
-title: "Глава 8. Препятствия и способы их преодоления - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
+title: 'Глава 8. Препятствия и способы их преодоления - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
 date: 2020-02-22
 aliases:
   - "/2020/02/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-ajengar.html"
