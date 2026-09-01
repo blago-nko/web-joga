@@ -1,5 +1,5 @@
 ---
-title: '''Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Линза Сознания'''
+title: "'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Линза Сознания'"
 date: 2019-12-04
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-linza-soznaniya.html"

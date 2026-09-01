@@ -1,5 +1,5 @@
 ---
-title: '''Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Память: освобождение от оков'''
+title: "'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Память: освобождение от оков'"
 date: 2019-12-03
 aliases:
   - "/2019/12/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-pamyat-osvobozhdenie-ot-okov.html"

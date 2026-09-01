@@ -1,5 +1,5 @@
 ---
-title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Плод'''
+title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Плод'"
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-plod.html"
