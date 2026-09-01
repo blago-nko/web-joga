@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Семейная жизнь'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Семейная жизнь"
 date: 2019-10-23
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-semejnaya-zhizn.html"

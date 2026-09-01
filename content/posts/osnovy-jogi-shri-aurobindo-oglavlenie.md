@@ -1,5 +1,5 @@
 ---
-title: "'ОСНОВЫ ЙОГИ - Шри Ауробиндо (Оглавление)'"
+title: "ОСНОВЫ ЙОГИ - Шри Ауробиндо (Оглавление)"
 date: 2019-11-03
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-oglavlenie.html"

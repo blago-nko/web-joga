@@ -1,5 +1,5 @@
 ---
-title: "'Приложение Курсы Пранаямы - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Приложение Курсы Пранаямы - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-06-29
 aliases:
   - "/2020/06/prilozhenie-kursy-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html"

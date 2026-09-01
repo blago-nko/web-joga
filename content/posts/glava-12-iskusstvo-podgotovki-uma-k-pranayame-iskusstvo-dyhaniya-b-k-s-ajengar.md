@@ -1,5 +1,5 @@
 ---
-title: "'Глава 12. Искусство подготовки ума к Пранаяме - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Глава 12. Искусство подготовки ума к Пранаяме - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-25
 aliases:
   - "/2020/03/glava-12-iskusstvo-podgotovki-uma-k-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html"

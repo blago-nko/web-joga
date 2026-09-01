@@ -1,5 +1,5 @@
 ---
-title: "'Глава 6. Гуру и Шисья - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Глава 6. Гуру и Шисья - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-02-09
 aliases:
   - "/2020/02/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar.html"

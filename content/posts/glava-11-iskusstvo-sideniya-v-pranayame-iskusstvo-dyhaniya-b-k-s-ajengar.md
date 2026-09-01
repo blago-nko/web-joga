@@ -1,5 +1,5 @@
 ---
-title: "'Глава 11. Искусство сидения в Пранаяме - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'"
+title: "Глава 11. Искусство сидения в Пранаяме - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР"
 date: 2020-03-22
 aliases:
   - "/2020/03/glava-11-iskusstvo-sideniya-v-pranayame-iskusstvo-dyhaniya-b-k-s-ajengar.html"

@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - От тела к душе'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - От тела к душе"
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-ot-tela-k-dushe.html"

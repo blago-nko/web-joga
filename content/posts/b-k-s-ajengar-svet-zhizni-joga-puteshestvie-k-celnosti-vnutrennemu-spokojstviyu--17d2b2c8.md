@@ -1,5 +1,5 @@
 ---
-title: "'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Совершенствование: радуйтесь даже небольшому прогрессу'"
+title: "Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Совершенствование: радуйтесь даже небольшому прогрессу"
 date: 2019-11-17
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-sovershenstvovanie-radujtes-dazhe-nebolshomu-progressu.html"

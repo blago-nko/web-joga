@@ -1,5 +1,5 @@
 ---
-title: "'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Усилие, осознание и радость'"
+title: "ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Усилие, осознание и радость"
 date: 2019-10-24
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-usilie-osoznanie-i-radost.html"
