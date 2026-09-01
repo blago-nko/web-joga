@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgS5t94_ld4AydZWUgyEDFUqpyJJ_oAyUuSQPaEhhlXYwXkoanoqeUS5dQhy5vY67z1GyYwJKsS4817HV47a8W8r6lnh_vYiQ7SGuuDVXCg9O5sb8NL6OWeJD_IqEmYtWwL13H5g6m-aCI/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258052.jpg" alt="Айенгар" title="Айенгар">
 
-## 
-
-Истинная Природа Здоровья
+## Истинная Природа Здоровья
 
 Большинство людей просят от своего тела их не беспокоить, то есть здоровье для них – это отсутствие болезни и боли. Они не имеют представления о тех нарушениях в уме, которые рано или поздно приведут к болезням. Йога же оказывает на физическое состояние троякое воздействие. Она помогает восстановиться после пережитой травмы, замедляет течение болезни, если она есть, и делает здоровых людей еще более крепкими.
 

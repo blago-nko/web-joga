@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgwO24a7U6skL6USCG3RH_uZErxbOkwYrTB7vu2VxyN81VH4CNokDUy7O2OWh9ebMwq0LgxSYQsMpQ5sWtb-7CTDK6pPHwTW5mwIfDzeieI2wLsgvRFiY2CCn8qkXpFEYV-KzE7_G_SF8s/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258072.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
-
-Внутренняя работа сознания
+## Внутренняя работа сознания
 
 Сейчас в любом книжном магазине можно найти целую полку с литературой типа помоги-себе-сам, изданиями, посвященными психологии, личностному росту и различным духовным практикам. Но очень мало книг затрагивают истинный секрет работы нашего ума и сознания.
 

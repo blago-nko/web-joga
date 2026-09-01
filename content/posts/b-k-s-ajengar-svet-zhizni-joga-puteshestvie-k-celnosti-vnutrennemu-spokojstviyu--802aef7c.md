@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiD1-4jAiLTv4SL_Dvf0fY_h_W_OHzyYuMEWsJtjgyIFmds7fql1lsVpMK-VlrqXjQeP4r1qJoKLr2k9NMk0MKTAu5G8aS3fqPEWP266I3Ku9diH2ZdWaoQjPhgZPWCT36qs7dCYgkXQ2Y/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580106.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
-
-Жизнь – это учеба 
+## Жизнь – это учеба 
 
 Эта книга обозначила много разграничений – пять тонких тел, пять элементов, пять жизненных целей. Путешествие к исследованию Природы и обнаружению Души – это благодарный и восхитительный путь. Но где-то подсознательно мы не должны забывать, что все эти проявления не появляются ниоткуда, потому что они вплетены в сознание. Поэтому высшая цель йоги – полная трансформация сознания (читты),  которое наполняет все наше существо осознанностью и не знает границ.
 

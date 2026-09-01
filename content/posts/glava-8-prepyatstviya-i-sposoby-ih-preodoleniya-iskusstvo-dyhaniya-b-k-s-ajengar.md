@@ -7,9 +7,7 @@ url: "/glava-8-prepyatstviya-i-sposoby-ih-preodoleniya-iskusstvo-dyhaniya-b-k-s-
 ---
 [Предыдущая](https://joga.blagorussia.ru/2020/02/glava-7-pishcha-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/02/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-## 
-
-Глава 8. Препятствия и способы их преодоления
+## Глава 8. Препятствия и способы их преодоления
 
 1. Садхака должен быть осведомлен о препятствиях, которые сознательно или бессознательно мешают практике пранаямы. Он должен избегать разрушения и вести упорядоченную жизнь, чтобы подготовить свой ум и тело.
 

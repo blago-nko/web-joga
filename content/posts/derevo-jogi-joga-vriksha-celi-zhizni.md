@@ -27,8 +27,6 @@ url: "/derevo-jogi-joga-vriksha-celi-zhizni/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDsFGoEQQTws2eazACGYCR7Ox5vxwykGQWTxcsDKLtVhE7nV43ZE92lvT9-6jBSdB990hhdduoesjlswXIHMkKDctO_UoLBXgV84LIKOMfvEB85pRJLAc4qQ6bEXF45NKV9Pdh3zyfeHA/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%25804.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
 
-#### 
-
-В следующих главах мы увидим, как практика йоги связана с каждым периодом жизненного пути.
+#### В следующих главах мы увидим, как практика йоги связана с каждым периодом жизненного пути.
 
 [Предыдущая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-vostok-i-zapad.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2019/10/derevo-jogi-joga-vriksha-detstvo.html)

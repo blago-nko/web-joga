@@ -9,13 +9,9 @@ url: "/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIunZFsS7NXnrwc54tgndOI7QaaeNyvwf565irBPLjsgMFvkEyj8RvVN1bctFQPb43wlRjRYaHwW7DXkNWhaFw_CAgL0sxqnkb9oqoGZSxQDl9UEF6GSo3ZxTspCAE1eCIUO9pg-DETVk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580116.jpg" alt="АЙЕНГАР" title="АЙЕНГАР">
 
-## 
+## Введение
 
-Введение
-
-### 
-
-Иегуди Минухина
+### Иегуди Минухина
 
 Б К С Айенгар проделал в области столь трудной для понимания Пранаямы, представляющей собой движение дающего жизнь живущим на Земле воздуха, такой же груд, какой он посвятил физическим принципам Хатха-Йоги. Здесь он продвинулся в более тонкий, эфирный аспект нашего собственного существования. Он представил с единой точки зрения и дал в руки простых людей книгу, которая содержит в некоторых отношениях больше информации, больше знаний и мудрости, чем способны получить наши самые выдающиеся студенты, обучающиеся университетской медицине, так как это — лекарство для здоровья, а не от болезни, это понимание духа, тела и ума, которое исцеляет и дает силы.
 
@@ -27,8 +23,6 @@ url: "/vvedenie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 Этой книгой господин Айенгар, мой гуру в йоге, добавил новое и важное измерение в жизнь людей Запада, побуждая нас присоединиться к нашим братьям всех цветов кожи и всех вероучений на празднике жизни с подобающей почтительностью и необходимой целеустремленностью.
 
-#### 
-
-Иегуди Минухин
+#### Иегуди Минухин
 
 [Предыдущая](https://joga.blagorussia.ru/2019/12/dar-moego-gurudzhi-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) >>> [Оглавление](https://joga.blagorussia.ru/2019/12/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) <<< [Следующая](https://joga.blagorussia.ru/2020/01/predislovie-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)

@@ -9,9 +9,7 @@ url: "/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_ZreNs1JUHDxVvQjSubXaAlmfvIy8-FnuQmI7buKqQDY3o_vxa95w3vCSZ-zixEthiI6Ha55vIB-kwQwbn2hi_09a5ayVKnfjieHDtcPsXjZQlJQPhPd7dx8hBGRx3p44v7u91aaPUCk/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580125.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
-## 
-
-Глава 9. Эффекты Пранаямы
+## Глава 9. Эффекты Пранаямы
 
 1. Асаны улучшают циркуляцию крови по всему телу, включая голову, туловище и конечности.
 

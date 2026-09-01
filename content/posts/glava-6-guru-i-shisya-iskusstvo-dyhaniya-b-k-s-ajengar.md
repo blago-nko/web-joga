@@ -9,9 +9,7 @@ url: "/glava-6-guru-i-shisya-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKZs3qjJx6Te4NF1pDGKcrAdCuJVfwd3sP2l_rpJQbj1qSGAjcfeaV8aCfpMcQ55x3RaTqbBJrBh4NYUftqiLWlBuuiIPkCw1lLYq0dM3MMD2dC7HmhHBBtKvnXipyeCd_353LRxXmA8M/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%2580123.jpg" alt="Б. К. С. АЙЕНГАР" title="Б. К. С. АЙЕНГАР">
 
-### 
-
-Глава 6. Гуру и Шисья
+### Глава 6. Гуру и Шисья
 
 1. Гуру (учитель) и его ученик (шисья) соединяют свои усилия в достижении духовного знания (Брахма-видья). Сначала гуру учит своего ученика и выявляет его познания, в то время как ученик познает гуру и предмет своего обучения. Следующая ступень для ученика — продолжительная аскетическая практика — тапас, которая длится до тех пор, пока знание не войдет в кровь и плоть ученика.
 

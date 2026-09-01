@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiIySCdrBtk79EhM1X4ks_pVCjvfz7_onA6bpklc52Bl2YMuhqfRK-GaqTm9nkYKFAxdN0_kQoQ65zot7dPXW3anEbRvqc1ogMr1ZwsCVKwKPjW8VY1r8iHFkFd840laDQL6wdppWJQneI/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258083.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
-
-Пять качеств ума (бхуми) 
+## Пять качеств ума (бхуми) 
 
 Для того чтобы мы стали более осознанными в сознании-океане с тревожащими его волнами-шаблонами, йога выделила пять качеств, или уровней ума, которые соответствуют пяти вариациям, разобранным чуть выше. Они включают в себя отвлеченное состояние «ума-обезьяны», меняющееся и колеблющееся, вялое состояние, сфокусированный ум, или полное обуздание сознания, и высшее чувство погруженности вне времени, которое мы называем самадхи.
 

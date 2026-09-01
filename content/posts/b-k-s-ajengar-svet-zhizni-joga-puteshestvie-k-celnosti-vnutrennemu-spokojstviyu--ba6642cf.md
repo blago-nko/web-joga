@@ -9,9 +9,7 @@ url: "/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokoj
 
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgj6RtAWFnJdZIWZXJTYNTaNBPtGQ2FXFe9JaxZF8MxzQ-mNo_SBlHiLMJXZb2-06UqgefTWNbw-g6rcNDlqGxWbeNWJHQ306MC5BGeyCfNY0N557tdsOWXOwT21DVhiiqeNQBrfdL0GSg/s1600/%25D0%2590%25D0%25B9%25D0%25B5%25D0%25BD%25D0%25B3%25D0%25B0%25D1%258094.jpg" alt="Айенгар " title="Айенгар ">
 
-## 
-
-Эволюция природы 
+## Эволюция природы 
 
 Стоит отметить, что между теорией эволюции Дарвина и йоговской концепцией нет явного противоречия. Йога верит в существование Бога, но он не представляется ей эдаким кукловодом, одновременно дергающим за триллионы ниточек. Мир, каким мы его знаем, насквозь пропитан вселенской душой, но не управляется ей напрямую. Вот так выглядит картина мира в полном соответствии с концепцией йоги.
 
