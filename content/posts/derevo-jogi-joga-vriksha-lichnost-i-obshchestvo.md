@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Личность и общество'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Личность и общество'''
 date: 2019-10-22
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-lichnost-i-obshchestvo.html"

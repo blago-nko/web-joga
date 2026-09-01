@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога Сутры Патанджали'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога Сутры Патанджали'''
 date: 2019-10-28
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-sutry-patandzhali.html"

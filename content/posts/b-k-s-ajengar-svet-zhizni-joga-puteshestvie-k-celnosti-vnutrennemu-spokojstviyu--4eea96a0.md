@@ -1,5 +1,5 @@
 ---
-title: 'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Динамичное растяжение: из центра вашей Сущности'
+title: '''Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Динамичное растяжение: из центра вашей Сущности'''
 date: 2019-11-16
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-dinamichnoe-rastyazhenie-iz-centra-vashej-sushchnosti.html"

@@ -1,5 +1,5 @@
 ---
-title: 'Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Легкость: думайте и чувствуйте себя легче'
+title: '''Б. К. С. Айенгар Свет жизни: йога. Путешествие к цельности, внутреннему спокойствию и наивысшей свободе - Легкость: думайте и чувствуйте себя легче'''
 date: 2019-11-16
 aliases:
   - "/2019/11/b-k-s-ajengar-svet-zhizni-joga-puteshestvie-k-celnosti-vnutrennemu-spokojstviyu-i-naivysshej-svobode-legkost-dumajte-i-chuvstvujte-sebya-legche.html"

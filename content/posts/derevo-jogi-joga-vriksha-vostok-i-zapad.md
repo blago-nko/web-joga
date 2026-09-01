@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Восток и Запад'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Восток и Запад'''
 date: 2019-10-23
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-vostok-i-zapad.html"
