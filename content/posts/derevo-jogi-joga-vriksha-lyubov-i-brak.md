@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Любовь и брак'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Любовь и брак'''
 date: 2019-10-23
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-lyubov-i-brak.html"

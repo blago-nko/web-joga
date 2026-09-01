@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога и аюрведическая медицина'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Йога и аюрведическая медицина'''
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-joga-i-ayurvedicheskaya-medicina.html"

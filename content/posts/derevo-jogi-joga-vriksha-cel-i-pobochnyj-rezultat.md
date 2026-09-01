@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цель и побочный результат'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Цель и побочный результат'''
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-cel-i-pobochnyj-rezultat.html"

@@ -1,5 +1,5 @@
 ---
-title: 'Глава 9. Эффекты Пранаямы - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
+title: '''Глава 9. Эффекты Пранаямы - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'''
 date: 2020-02-22
 aliases:
   - "/2020/02/glava-9-ehffekty-pranayamy-iskusstvo-dyhaniya-b-k-s-ajengar.html"

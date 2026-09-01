@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Практический подход'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Практический подход'''
 date: 2019-10-27
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-prakticheskij-podhod.html"

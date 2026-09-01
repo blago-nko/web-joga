@@ -1,5 +1,5 @@
 ---
-title: 'ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глубина асаны'
+title: '''ДЕРЕВО ЙОГИ. ЙОГА ВРИКША - Глубина асаны'''
 date: 2019-10-24
 aliases:
   - "/2019/10/derevo-jogi-joga-vriksha-glubina-asany.html"

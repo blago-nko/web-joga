@@ -1,5 +1,5 @@
 ---
-title: 'Практика управления энергией'
+title: '''Практика управления энергией'''
 date: 2021-06-26
 aliases:
   - "/2021/06/praktika-upravleniem-ehnergiej.html"

@@ -1,5 +1,5 @@
 ---
-title: 'ОСНОВЫ ЙОГИ - Шри Ауробиндо - СПОКОЙСТВИЕ – ПОКОЙ – БЕСПРИСТРАСТНОСТЬ'
+title: '''ОСНОВЫ ЙОГИ - Шри Ауробиндо - СПОКОЙСТВИЕ – ПОКОЙ – БЕСПРИСТРАСТНОСТЬ'''
 date: 2019-11-03
 aliases:
   - "/2019/11/osnovy-jogi-shri-aurobindo-spokojstvie-pokoj-bespristrastnost.html"

@@ -1,5 +1,5 @@
 ---
-title: 'Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'
+title: '''Глоссарий - ИСКУССТВО ДЫХАНИЯ - Б. К. С. АЙЕНГАР'''
 date: 2020-06-30
 aliases:
   - "/2020/06/glossarij-iskusstvo-dyhaniya-b-k-s-ajengar.html"
