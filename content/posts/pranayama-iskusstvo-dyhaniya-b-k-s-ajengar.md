@@ -49,25 +49,19 @@ url: "/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 [ГЛАВА 13. МУДРЫ И БАНДХИ](https://joga.blagorussia.ru/2020/03/glava-13-mudry-i-bandhi-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 55 - 69
 
-[
-
-ГЛАВА 14. ИСКУССТВО ВДОХА (ПУРАКА) И ВЫДОХА (РЕЧАКА)](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 70 - 76
+[ГЛАВА 14. ИСКУССТВО ВДОХА (ПУРАКА) И ВЫДОХА (РЕЧАКА)](https://joga.blagorussia.ru/2020/03/glava-14-iskusstvo-vdoha-puraka-i-vydoha-rechaka-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 70 - 76
 
 [ГЛАВА 15. ИСКУССТВО ЗАДЕРЖКИ ДЫХАНИЯ (КУЛЛБХАКА)](https://joga.blagorussia.ru/2020/03/glava-15-iskusstvo-zaderzhki-dyhaniya-kullbhaka-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 77 - 78
 
 [ГЛАВА 16. КЛАССИФИКАЦИЯ САДХАК](https://joga.blagorussia.ru/2020/03/glava-16-klassifikaciya-sadhak-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-[
-
-ГЛАВА 17. БИДЖА ПРАНАЯМА
+[ГЛАВА 17. БИДЖА ПРАНАЯМА
 
 ](https://joga.blagorussia.ru/2020/04/glava-17-bidzha-pranayama-b-k-s-ajengar.html)
 
 [ГЛАВА 18. ВРИТТИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/04/glava-18-vritti-pranayama-b-k-s-ajengar.html)
 
-[
-
-РАЗДЕЛ III ТЕХНИКИ ПРАНАЯМЫ
+[РАЗДЕЛ III ТЕХНИКИ ПРАНАЯМЫ
 
 ГЛАВА 19. УДДЖАЙИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/05/razdel-iii-tekhniki-pranayamy-glava-19-uddzhaji-pranayama-b-k-s-ajengar.html) фото 79 - 104
 
@@ -75,23 +69,17 @@ url: "/pranayama-iskusstvo-dyhaniya-b-k-s-ajengar/"
 
 [ГЛАВА 21. БХРАМАРИ, МУРЧХА И ПЛАВИНИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/05/glava-21-bhramari-murchkha-i-plavini-pranayama-b-k-s-ajengar.html) фото 105 - 108
 
-[
-
-ГЛАВА 22. ПАЛЬЦЕВАЯ ПРАНАЯЛЛА И ИСКУССТВО РАСПОЛОЖЕНИЯ ПАЛЬЦЕВ
+[ГЛАВА 22. ПАЛЬЦЕВАЯ ПРАНАЯЛЛА И ИСКУССТВО РАСПОЛОЖЕНИЯ ПАЛЬЦЕВ
 
 НА НОСУ](https://joga.blagorussia.ru/2020/05/glava-22-palcevaya-pranayalla-i-iskusstvo-raspolozheniya-palcev-na-nosu-b-k-s-ajengar.html) фото 109 - 142
 
 [ГЛАВА 23. БХАСТРИКА И КАПАЛАБХАТИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/05/glava-23-bhastrika-i-kapalabhati-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-[
-
-ГЛАВА 24. СИТАЛИ И СИТКАРИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 143 - 144
+[ГЛАВА 24. СИТАЛИ И СИТКАРИ ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 143 - 144
 
 [ГЛАВА 25. АНУЛОМА ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-25-anuloma-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html)
 
-[
-
-ГЛАВА 26. ПРАТИЛОЛЛА ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 145
+[ГЛАВА 26. ПРАТИЛОЛЛА ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-26-pratilolla-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 145
 
 [ГЛАВА 27. СУРЬЯ БХЕДАНА И ЧАНДРА БХЕДАНА ПРАНАЯМА](https://joga.blagorussia.ru/2020/06/glava-27-surya-bhedana-i-chandra-bhedana-pranayama-iskusstvo-dyhaniya-b-k-s-ajengar.html) фото 146
 
